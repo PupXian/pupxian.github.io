@@ -83,7 +83,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Tactical Gear
 - [DarkShop](https://www.darkshop.nl/)
-
+- [NL Tactical (NL)](https://www.nltactical.nl/en/)
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
