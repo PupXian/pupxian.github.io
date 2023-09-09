@@ -28,4 +28,32 @@ We have no affiliations, sponsorships, partnerships, or any other kind of relati
 
 By using this website, you agree to the limitations of liability set out in this disclaimer.
 
-{:toc}
+
+### Gas masks & connectors
+[RubberShop](https://rubbershop.net/)
+
+### General
+[Benswild](https://benswild.com/)
+[Mister B](https://www.misterb.com/)
+
+### MX Gear
+[MX Gear](https://mx-deals.nl/)
+### Pup Play
+
+### Rubber
+[Rub Addiction](https://www.rubaddiction.com/)
+
+### Specialized
+
+[Serious kit](https://www.seriouskitshop.com)
+
+### Toys
+
+[Neotori](https://neotori.com/)
+
+#Underwear
+[Long john Bodywear (NL](https://www.longjohnbodywear.nl/)
+
+
+
+
