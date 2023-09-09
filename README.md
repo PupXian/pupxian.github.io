@@ -47,6 +47,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Mister B](https://www.misterb.com/)
 - [Mister Mitch (NL)](https://www.mistermitch.nl/)
 - [MistrBear (CA)](https://mistrbear.com/)
+- [MR-S-Leather (US)](https://www.mr-s-leather.com/)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
