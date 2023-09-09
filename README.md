@@ -40,6 +40,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop](https://www.fetchshop.co.uk/)
+- [MC Hurt](https://www.mchurt.eu/en/)
 - [Mince (NL)](https://www.mince.nl/)
 - [Mister B](https://www.misterb.com/)
 - [Mister Mitch (NL)](https://www.mistermitch.nl/)
@@ -54,6 +55,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
+- [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
 
 
@@ -61,7 +63,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
 
-### Rubber
+### Rubber / Latex
+- [Black Style](https://www.blackstyle.de/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
