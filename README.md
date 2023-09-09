@@ -78,6 +78,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
+- [DG Lab](https://dungeon-lab.com/home.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Serious kit](https://www.seriouskitshop.com)
 
@@ -92,6 +93,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Twisted Beast](https://twistedbeaststore.eu/)
 
 ### Underwear & Clothing
+- [Addicted](https://addicted.es/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
@@ -100,6 +102,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
 - [Mr Riegillio](https://mr-riegillio.com/)
 - [Roguefang (US)](https://www.roguefang.com/)
+- [Sk8erboy](https://www.sk8erboy.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
 
 
