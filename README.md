@@ -32,7 +32,8 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Gas masks & connectors
-- [RubberShop](https://rubbershop.net/)
+- [RubberFun](https://rubberfun.nl/nl/)
+- [RubberShop](https://rubbershop.net/) 
 
 ### General
 - [Army of Men (AU)](https://armyofmen.com/)
