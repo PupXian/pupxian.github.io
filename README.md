@@ -86,6 +86,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
+- [Flurb](https://flurb.me/)
 - [Neotori](https://neotori.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
 
