@@ -42,6 +42,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetters (UK)](https://fetters.co.uk/)
+- [ForFun (TH)](https://www.forfun.store/)
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [Mince (NL)](https://www.mince.nl/)
 - [Mister B](https://www.misterb.com/)
@@ -55,12 +56,14 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### MX Gear
 - [24MX (NL)](https://www.24mx.nl/)
+- [Maciag Offroad](https://www.maciag-offroad.com/)
 - [MX Gear (NL)](https://mx-deals.nl/)
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
 - [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
+- [StyleFetish (DE)](https://stylefetish.de/)
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 ### Pup Play
@@ -72,6 +75,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
 - [Latex 101](https://www.latex101.com/)
+- [Libidex (UK)](https://libidex.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
@@ -81,11 +85,16 @@ The link index is categorized as much as possible, and the links are added in al
 - [Air Master](https://www.air-master.hu/)
 - [DG Lab](https://dungeon-lab.com/home.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
+- [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
+- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Serious kit](https://www.seriouskitshop.com)
+- 
 
 ### Tactical Gear
+- [Benscore (NL)](https://benscore.com/)
 - [DarkShop](https://www.darkshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
+ 
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
@@ -101,6 +110,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Code 22](https://www.code22.eu/)
 - [Gear Berlin](https://gearberlin.com/)
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
+- [Menderwear (FR)](https://www.menderwear.com/)
 - [Mr Riegillio](https://mr-riegillio.com/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
