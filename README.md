@@ -32,62 +32,62 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Gas masks & connectors
-[RubberShop](https://rubbershop.net/)
+- [RubberShop](https://rubbershop.net/)
 
 ### General
-[Army of Men (AU)](https://armyofmen.com/)
-[Benswild](https://benswild.com/)
-[Black Body (NL)](https://www.blackbody.nl/)
-[Erotik Sjop (NL)](https://erotik-sjop.com/)
-[Fetch Shop](https://www.fetchshop.co.uk/)
-[Mince (NL)](https://www.mince.nl/)
-[Mister B](https://www.misterb.com/)
-[Mister Mitch (NL)](https://www.mistermitch.nl/)
-[MistrBear (CA)](https://mistrbear.com/)
-[Regulation Store (UK)](https://regulation.store/)
-[Rob Shop](https://www.rob.eu/)
-[The Kinksters (UK)](https://thekinksters.co.uk/)
-[Underground Fetish](https://www.underground-fetish.com/)
+- [Army of Men (AU)](https://armyofmen.com/)
+- [Benswild](https://benswild.com/)
+- [Black Body (NL)](https://www.blackbody.nl/)
+- [Erotik Sjop (NL)](https://erotik-sjop.com/)
+- [Fetch Shop](https://www.fetchshop.co.uk/)
+- [Mince (NL)](https://www.mince.nl/)
+- [Mister B](https://www.misterb.com/)
+- [Mister Mitch (NL)](https://www.mistermitch.nl/)
+- [MistrBear (CA)](https://mistrbear.com/)
+- [Regulation Store (UK)](https://regulation.store/)
+- [Rob Shop](https://www.rob.eu/)
+- [The Kinksters (UK)](https://thekinksters.co.uk/)
+- [Underground Fetish](https://www.underground-fetish.com/)
 
 ### MX Gear
-[MX Gear (NL)](https://mx-deals.nl/)
+- [MX Gear (NL)](https://mx-deals.nl/)
 
 ### Playroom
-[Steel Toys (NL)](https://steeltoys.nl/)
-[Behind Bars]
+- [Steel Toys (NL)](https://steeltoys.nl/)
+- [Behind Bars]
 
 ### Pup Play
-[Wruff Stuff (UK)](https://wruffstuff.com/)
-[Behind Bars](https://bhndbars.com/)
+- [Wruff Stuff (UK)](https://wruffstuff.com/)
+- [Behind Bars](https://bhndbars.com/)
 
 
 ### Rubber
-[Invincible Rubber (UK)](https://www.invinciblerubber.com/)
-[Kink projects](https://www.kinkprojects.com/)
-[Rub Addiction](https://www.rubaddiction.com/)
-[Rubber Dutch (NL)](https://www.rubberdutch.com/)
-[Wet Hot Rubber (UK)](https://wethot.co.uk/)
+- [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
+- [Kink projects](https://www.kinkprojects.com/)
+- [Rub Addiction](https://www.rubaddiction.com/)
+- [Rubber Dutch (NL)](https://www.rubberdutch.com/)
+- [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 
 ### Specialized
 
-[Serious kit](https://www.seriouskitshop.com)
+- [Serious kit](https://www.seriouskitshop.com)
 
 ### Tactical Gear
-[DarkShop](https://www.darkshop.nl/)
+- [DarkShop](https://www.darkshop.nl/)
 
 ### Toys
-[Crackstuffers](https://crackstuffers.com/)
-[Neotori](https://neotori.com/)
-[Twistetd Beast](https://twistedbeaststore.eu/)
+- [Crackstuffers](https://crackstuffers.com/)
+- [Neotori](https://neotori.com/)
+- [Twistetd Beast](https://twistedbeaststore.eu/)
 
-#Underwear & Clothing
-[Barcode Berlin](https://store.barcodeberlin.com/)
-[Boxer Barcelona](https://boxerbarcelona.com/)
-[Breedwell (US)](https://breedwell.com/)
-[Code 22](https://www.code22.eu/)
-[Long john Bodywear (NL](https://www.longjohnbodywear.nl/)
-[Roguefang (US)](https://www.roguefang.com/)
-[Underwear store (NL)](https://www.underwear-store.nl/)
+### Underwear & Clothing
+- [Barcode Berlin](https://store.barcodeberlin.com/)
+- [Boxer Barcelona](https://boxerbarcelona.com/)
+- [Breedwell (US)](https://breedwell.com/)
+- [Code 22](https://www.code22.eu/)
+- [Long john Bodywear (NL](https://www.longjohnbodywear.nl/)
+- [Roguefang (US)](https://www.roguefang.com/)
+- [Underwear store (NL)](https://www.underwear-store.nl/)
 
 
 
