@@ -53,8 +53,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [MX Gear (NL)](https://mx-deals.nl/)
 
 ### Playroom
-- [Steel Toys (NL)](https://steeltoys.nl/)
 - [Behind Bars](https://bhndbars.com/)
+- [Steel Toys (NL)](https://steeltoys.nl/)
+
 
 ### Pup Play
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
