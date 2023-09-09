@@ -52,13 +52,14 @@ The link index is categorized as much as possible, and the links are added in al
 - [Underground Fetish](https://www.underground-fetish.com/)
 
 ### MX Gear
+- [24MX (NL)](https://www.24mx.nl/)
 - [MX Gear (NL)](https://mx-deals.nl/)
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
 - [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
-
+- [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 ### Pup Play
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
