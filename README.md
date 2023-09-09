@@ -40,7 +40,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Benswild](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
-- [Fetch Shop](https://www.fetchshop.co.uk/)
+- [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetters (UK)](https://fetters.co.uk/)
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [Mince (NL)](https://www.mince.nl/)
