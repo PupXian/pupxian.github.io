@@ -70,6 +70,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Black Style](https://www.blackstyle.de/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
+- [Latex 101](https://www.latex101.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
