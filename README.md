@@ -37,6 +37,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### General
 - [Army of Men (AU)](https://armyofmen.com/)
 - [Benswild](https://benswild.com/)
+- [Best of Cologne](https://best-of-fetish.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop](https://www.fetchshop.co.uk/)
