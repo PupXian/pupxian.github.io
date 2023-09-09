@@ -54,11 +54,10 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Playroom
 - [Steel Toys (NL)](https://steeltoys.nl/)
-- [Behind Bars]
+- [Behind Bars](https://bhndbars.com/)
 
 ### Pup Play
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
-- [Behind Bars](https://bhndbars.com/)
 
 
 ### Rubber
@@ -76,16 +75,17 @@ The link index is categorized as much as possible, and the links are added in al
 - [DarkShop](https://www.darkshop.nl/)
 
 ### Toys
+- [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
 - [Neotori](https://neotori.com/)
-- [Twistetd Beast](https://twistedbeaststore.eu/)
+- [Twisted Beast](https://twistedbeaststore.eu/)
 
 ### Underwear & Clothing
 - [Barcode Berlin](https://store.barcodeberlin.com/)
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
 - [Code 22](https://www.code22.eu/)
-- [Long john Bodywear (NL](https://www.longjohnbodywear.nl/)
+- [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
 
