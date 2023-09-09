@@ -87,6 +87,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
 - [Code 22](https://www.code22.eu/)
+- [Gear Berlin](https://gearberlin.com/)
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
 - [Mr Riegillio](https://mr-riegillio.com/)
 - [Roguefang (US)](https://www.roguefang.com/)
