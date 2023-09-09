@@ -109,6 +109,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Breedwell (US)](https://breedwell.com/)
 - [Code 22](https://www.code22.eu/)
 - [Gear Berlin](https://gearberlin.com/)
+- [Jor Wear (Co)](https://www.jorwear.com/)
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
 - [Menderwear (FR)](https://www.menderwear.com/)
 - [Mr Riegillio](https://mr-riegillio.com/)
