@@ -68,7 +68,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 
 ### Specialized
-
+- [Air Master](https://www.air-master.hu/)
+- [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Serious kit](https://www.seriouskitshop.com)
 
 ### Tactical Gear
