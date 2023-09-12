@@ -34,7 +34,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### ABDL
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
-
+- [Onesies Down Under (US)](https://onesiesdownunder.com/)
 
 ### Gas masks & connectors
 - [RubberFun](https://rubberfun.nl/nl/)
@@ -93,7 +93,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Serious kit](https://www.seriouskitshop.com)
-- 
+- [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 
 ### Tactical Gear
 - [Benscore (NL)](https://benscore.com/)
