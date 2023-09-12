@@ -32,20 +32,28 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### ABDL
+- [ABU Europe (UK)](https://eu.abuniverse.com/)
+- [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
+- [Diaperu (CH)](https://diaperu.com/)
+- [My Inner Baby (US)](https://myinnerbaby.com/)
+- [NRU (UK)](https://www.nru.co.uk/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
+- [Tykables (US)](https://tykables.com/)
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
 - [TailEnds (US)](https://tailendsstudios.com)
+- [The Dealers Den Online Market place (US)](https://www.thedealersden.com/categories)
 
 ### Gas masks & connectors
-- [Aroma Pump Hose (UK)](https://aromaspumphoses.com/) 
+- [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
 - [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
+- [Stricken Designs Gas Masks (UK)](https://strickendesigns.company.site/)
 
 ### General
 - [Army of Men (AU)](https://armyofmen.com/)
@@ -64,6 +72,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [MR-S-Leather (US)](https://www.mr-s-leather.com/)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
+- [Stricken Designs (UK)](https://strickendesigns.com/products)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
 - [Underground Fetish](https://www.underground-fetish.com/)
 
@@ -86,12 +95,15 @@ The link index is categorized as much as possible, and the links are added in al
 ### Pup Play
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Jet Pup (US)](https://jet-pup.com/)
+- [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
 - [Black Style](https://www.blackstyle.de/)
+- [Bright And Shiny Store](https://www.brightandshinystore.com/)
+- [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR) 
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
 - [Latex 101](https://www.latex101.com/)
@@ -104,13 +116,21 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
+- [Cherry Keeper (US)](https://cherrykeeper.com/Default)
 - [DG Lab](https://dungeon-lab.com/home.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
+- [Kink3D (US)](https://kink3d.com/)
+- [KB3D (UK)](https://www.kb3d.co.uk/)
+- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
+
+### Superhero / Zentai
+- [Hero's Time (CH)](https://www.herostime.com/)
+- [Mr Zentai (CH)](https://mrzentai.com/)
 
 ### Tactical Gear
 - [Benscore (NL)](https://benscore.com/)
@@ -120,7 +140,6 @@ The link index is categorized as much as possible, and the links are added in al
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
  
-
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
@@ -133,6 +152,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### Underwear & Clothing
 - [Addicted](https://addicted.es/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
+- [Bizarre](https://www.bizzare.nl/index.php?language=en) 
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
 - [Code 22](https://www.code22.eu/)
