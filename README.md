@@ -36,11 +36,16 @@ The link index is categorized as much as possible, and the links are added in al
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 
+### Furry
+- [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
+- [CrunchyCurl](https://crunchycurl.com/)
+- [TailEnds (US)](https://tailendsstudios.com)
+
 ### Gas masks & connectors
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/) 
-- [Rubber Bunker](https://rubber-bunker.com/) 
+- [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
-- [RubberShop](https://rubbershop.net/) 
+- [RubberShop](https://rubbershop.net/)
 
 ### General
 - [Army of Men (AU)](https://armyofmen.com/)
@@ -62,6 +67,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
 - [Underground Fetish](https://www.underground-fetish.com/)
 
+### Leather
+- [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
+- [Tavaron's Leather](https://www.etsy.com/shop/TAVARONsLEATHER)
+
 ### MX Gear
 - [24MX (NL)](https://www.24mx.nl/)
 - [Maciag Offroad](https://www.maciag-offroad.com/)
@@ -75,10 +84,13 @@ The link index is categorized as much as possible, and the links are added in al
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 ### Pup Play
+- [G8DBOY](https://www.etsy.com/shop/G8DBOY)
+- [Jet Pup (US)](https://jet-pup.com/)
+- [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
-
 ### Rubber / Latex
+- [ARubber](https://www.etsy.com/shop/ARubber)
 - [Black Style](https://www.blackstyle.de/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
@@ -86,6 +98,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Libidex (UK)](https://libidex.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
+- [Simon-O](https://www.simon-o.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
 
@@ -111,8 +124,10 @@ The link index is categorized as much as possible, and the links are added in al
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
+- [Creature Feature Toys (US)](https://creaturefeaturetoys.com/)
 - [Flurb](https://flurb.me/)
 - [Neotori](https://neotori.com/)
+- [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Twisted Beast](https://twistedbeaststore.eu/)
 
 ### Underwear & Clothing
@@ -129,6 +144,3 @@ The link index is categorized as much as possible, and the links are added in al
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
-
-
-
