@@ -31,6 +31,11 @@ By using this website, you agree to the limitations of liability set out in this
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
+### ABDL
+- [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
+- [Diaper Minister](https://www.diaper-minister.com/en/)
+
+
 ### Gas masks & connectors
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/) 
