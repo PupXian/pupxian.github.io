@@ -103,6 +103,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
 - [Black Style](https://www.blackstyle.de/)
+- [Bright And Shiny Store](https://www.brightandshinystore.com/)
 - [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR) 
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Kink projects](https://www.kinkprojects.com/)
