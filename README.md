@@ -42,6 +42,15 @@ The link index is categorized as much as possible, and the links are added in al
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
 
+### Chastity
+
+- [Carrara Designs](https://carrara-designs.be/)
+- [Cherry Keeper (US)](https://cherrykeeper.com/Default)
+- [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
+- [Kink3D (US)](https://kink3d.com/)
+- [Mature Metal (US)](https://www.maturemetal.com/)
+
+
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
@@ -59,10 +68,16 @@ The link index is categorized as much as possible, and the links are added in al
 - [Army of Men (AU)](https://armyofmen.com/)
 - [Benswild](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
+- [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
+- [Church of Sinvention (CA)](https://churchofsinvention.com/)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
+- [Fetish Factory (US)](https://store.fetishfactory.com/)
+- [Fetish Zone (US)](https://www.fetishzone.net/store/)
 - [Fetters (UK)](https://fetters.co.uk/)
 - [ForFun (TH)](https://www.forfun.store/)
+- [Fort Troff (US)](https://www.forttroff.com/)
+- [Full Kit Gear (US)](https://www.fullkit.com/)  
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [MEO](https://www.meo.de/nl/)
 - [Mince (NL)](https://www.mince.nl/)
@@ -70,15 +85,22 @@ The link index is categorized as much as possible, and the links are added in al
 - [Mister Mitch (NL)](https://www.mistermitch.nl/)
 - [MistrBear (CA)](https://mistrbear.com/)
 - [MR-S-Leather (US)](https://www.mr-s-leather.com/)
+- [Oxballs (US)](https://oxballs.com/)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
+- [The Leather Man (US)](https://the-leather-man-inc.shoplightspeed.com/)
 - [Underground Fetish](https://www.underground-fetish.com/)
 
 ### Leather
 - [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
+- [House of Basciano (CA)](https://houseofbasciano.com/)
+- [Parus Leder](https://parus-leder.de/en/)
+- [Spitfire Leather (UK)](https://www.spitfireleather.com/)
 - [Tavaron's Leather](https://www.etsy.com/shop/TAVARONsLEATHER)
+- [Top To Bottom Leathers (UK)](https://www.top-to-bottom-leathers.co.uk/)
+  
 
 ### MX Gear
 - [24MX (NL)](https://www.24mx.nl/)
@@ -87,6 +109,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
+- [Dungeion Delights (US)](https://www.dungeondelights.com/online-store)
 - [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
 - [StyleFetish (DE)](https://stylefetish.de/)
@@ -102,30 +125,45 @@ The link index is categorized as much as possible, and the links are added in al
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
 - [Black Style](https://www.blackstyle.de/)
+- [Bizarre-Rubber-Shop](https://www.heavyrubber-shop.com/?lang=eng)
 - [Bright And Shiny Store](https://www.brightandshinystore.com/)
-- [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR) 
+- [Butcherei Lindinger (DE)](https://www.butcherei.com/)
+- [E7 Gear (US)](https://www.e7gear.com/index.aspx)
+- [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR)
+- [FE Rubber (CH)](https://www.ferubber.com/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
+- [Into Latex (UK)](https://www.into-latex.co.uk/)
+- [Kink Engineering (CA)](https://kinkengineering.com/)
 - [Kink projects](https://www.kinkprojects.com/)
 - [Latex 101](https://www.latex101.com/)
+- [Latex Crazy](https://en.latexcrazy.com/)
+- [Latex Skin](https://www.latexskin.pl/)
+- [Latextil (DE)](https://www.latextil.de/)
 - [Libidex (UK)](https://libidex.com/)
+- [Polymorphe (CA)](https://polymorphe.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
 - [Simon-O](https://www.simon-o.com/)
+- [Studio Gum](https://www.studiogum.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
 
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
-- [Cherry Keeper (US)](https://cherrykeeper.com/Default)
+- [Candy Coated Kink (US)](http://candycoatedkink.com/)
 - [DG Lab](https://dungeon-lab.com/home.php)
+- [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
+- [Erostek (US)](https://erostek.com/)
+- [F Machine](https://f-machine.com/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
 - [Kink3D (US)](https://kink3d.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
+- [Venus for Men (US)](https://venusformen.com/)
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
@@ -144,7 +182,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [Crackstuffers](https://crackstuffers.com/)
 - [Creature Feature Toys (US)](https://creaturefeaturetoys.com/)
 - [Flurb](https://flurb.me/)
+- [Hankey's Toys (US)](https://www.mrhankeystoys.com/)
 - [Neotori](https://neotori.com/)
+- [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Twisted Beast](https://twistedbeaststore.eu/)
 
@@ -158,8 +198,15 @@ The link index is categorized as much as possible, and the links are added in al
 - [Gear Berlin](https://gearberlin.com/)
 - [Jor Wear (Co)](https://www.jorwear.com/)
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
+- [Maskulo](https://maskulo.com/)
 - [Menderwear (FR)](https://www.menderwear.com/)
 - [Mr Riegillio](https://mr-riegillio.com/)
+- [Nasty Pig (US)](https://store.nastypig.com/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
+- [Twink-x](https://twink-x.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
+
+
+With special thanks to additional sources:
+- [Alphabatized merchants](https://airtable.com/appthzRd2Y8zt8xCX/shrxf0b4DMFxPzmQ1/tbl5y9Kqu0Sxo4GWz)
