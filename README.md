@@ -94,7 +94,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 ### Pup Play
-- [G8DBOY](https://www.etsy.com/shop/G8DBOY)- 
+- [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Jet Pup (US)](https://jet-pup.com/)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
