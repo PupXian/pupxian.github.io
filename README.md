@@ -107,9 +107,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [DG Lab](https://dungeon-lab.com/home.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
-- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
+- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 
 ### Tactical Gear
