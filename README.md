@@ -32,9 +32,16 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### ABDL
+- [ABU Europe (UK)](https://eu.abuniverse.com/)
+- [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
+- [Diaperu (CH)](https://diaperu.com/)
+- [My Inner Baby (US)](https://myinnerbaby.com/)
+- [NRU (UK)](https://www.nru.co.uk/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
+- [Tykables (US)](https://tykables.com/)
+- 
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
@@ -87,8 +94,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 ### Pup Play
-- [G8DBOY](https://www.etsy.com/shop/G8DBOY)
+- [G8DBOY](https://www.etsy.com/shop/G8DBOY)- 
 - [Jet Pup (US)](https://jet-pup.com/)
+- [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
