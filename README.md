@@ -51,6 +51,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Fetters (UK)](https://fetters.co.uk/)
 - [ForFun (TH)](https://www.forfun.store/)
 - [MC Hurt](https://www.mchurt.eu/en/)
+- [MEO](https://www.meo.de/nl/)
 - [Mince (NL)](https://www.mince.nl/)
 - [Mister B](https://www.misterb.com/)
 - [Mister Mitch (NL)](https://www.mistermitch.nl/)
@@ -94,14 +95,19 @@ The link index is categorized as much as possible, and the links are added in al
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
+- [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 
 ### Tactical Gear
 - [Benscore (NL)](https://benscore.com/)
 - [DarkShop](https://www.darkshop.nl/)
+- [Douwe's Dump (NL)](https://douwesdump.nl/)
+- [Gearpoint (NL)](https://www.gearpoint.nl/)
+- [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
  
+
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
