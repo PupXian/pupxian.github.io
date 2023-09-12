@@ -1,5 +1,7 @@
 name: Alphabetical
 
+on: push
+
 jobs:
   alphabetical:
     runs-on: ubuntu-latest
