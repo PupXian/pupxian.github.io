@@ -37,6 +37,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 
 ### Gas masks & connectors
+- [Aroma Pump Hose (UK)](https://aromaspumphoses.com/) 
 - [Rubber Bunker](https://rubber-bunker.com/) 
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/) 
