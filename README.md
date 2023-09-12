@@ -41,7 +41,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [NRU (UK)](https://www.nru.co.uk/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
-- 
+
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
