@@ -12,7 +12,7 @@ You must be 18 years of age or older to use this website. By using this website,
 
 ## Report Broken Links or Suggest New Sites
 
-If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on this GitHub repository. Your contributions are appreciated.
+If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) GitHub repository. Your contributions are appreciated.
 
 ## No Endorsement or Responsibility for External Links
 
