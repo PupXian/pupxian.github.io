@@ -32,8 +32,8 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### ABDL
-- [ABU Europe (UK)](https://eu.abuniverse.com/)
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
+- [ABU Europe (UK)](https://eu.abuniverse.com/)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
@@ -42,7 +42,6 @@ The link index is categorized as much as possible, and the links are added in al
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
 
-
 ### Chastity
 
 - [Carrara Designs](https://carrara-designs.be/)
@@ -50,6 +49,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
 - [Kink3D (US)](https://kink3d.com/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
+
+
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
@@ -157,9 +158,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Erostek (US)](https://erostek.com/)
 - [F Machine](https://f-machine.com/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
-- [Shoshu Amsterdam](https://shosu.amsterdam/)
+- [Kink3D (US)](https://kink3d.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
+- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
 
@@ -175,7 +177,6 @@ The link index is categorized as much as possible, and the links are added in al
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
  
-
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
