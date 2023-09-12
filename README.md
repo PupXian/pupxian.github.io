@@ -31,7 +31,7 @@ By using this website, you agree to the limitations of liability set out in this
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
- ### ABDL
+### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
@@ -120,11 +120,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [DG Lab](https://dungeon-lab.com/home.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
-- [Kink3D (US)](https://kink3d.com/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
-- [Shoshu Amsterdam](https://shosu.amsterdam/)
+- [Kink3D (US)](https://kink3d.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
+- [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 
