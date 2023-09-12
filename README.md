@@ -31,9 +31,9 @@ By using this website, you agree to the limitations of liability set out in this
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
-### ABDL
-- [ABU Europe (UK)](https://eu.abuniverse.com/)
+ ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
+- [ABU Europe (UK)](https://eu.abuniverse.com/)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
