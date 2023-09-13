@@ -50,7 +50,6 @@ The link index is categorized as much as possible, and the links are added in al
 - [Jupitor](https://www.jupitor.shop/products)
 - [Space Pup Silver (UK)](https://spacepupsilver.com/)
 
-- 
 ### Chastity
 - [BehindBarz (UK)](https://behindbarz.co.uk)
 - [Carrara Designs](https://carrara-designs.be/)
