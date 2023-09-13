@@ -177,6 +177,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Simon-O](https://www.simon-o.com/)
 - [SkinTightRubber (UK)](https://www.skintightrubber.uk)
 - [Studio Gum](https://www.studiogum.com/)
+- [UNIQDSN (US)](https://uniqdsn.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
 
