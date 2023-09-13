@@ -58,6 +58,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [Kink3D (US)](https://kink3d.com/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
 
+### Electro
+- [DG Lab](https://dungeon-lab.com/home.php)
+- [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
+- [Erostek (US)](https://erostek.com/)
+
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
@@ -179,15 +184,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [Air Master](https://www.air-master.hu/)
 - [BestFixSystems (DE)](https://www.bestfixsystems.de)
 - [Candy Coated Kink (US)](http://candycoatedkink.com/)
-- [DG Lab](https://dungeon-lab.com/home.php)
-- [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
 - [Edge O Matic](https://maustec.io/collections/edge-o-matic-base-units)
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
-- [Erostek (US)](https://erostek.com/)
 - [F Machine](https://f-machine.com/)
 - [Fuck Yeah! (UK)](https://fuckyeah.uk/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
-- [Kink3D (US)](https://kink3d.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
