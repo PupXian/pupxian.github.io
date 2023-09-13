@@ -34,7 +34,6 @@ The link index is categorized as much as possible, and the links are added in al
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
-- [BestFixSystems (DE)](https://www.bestfixsystems.de)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
@@ -162,6 +161,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
+- [BestFixSystems (DE)](https://www.bestfixsystems.de)
 - [Candy Coated Kink (US)](http://candycoatedkink.com/)
 - [DG Lab](https://dungeon-lab.com/home.php)
 - [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
