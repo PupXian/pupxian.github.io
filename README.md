@@ -106,6 +106,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [24MX (NL)](https://www.24mx.nl/)
 - [Maciag Offroad](https://www.maciag-offroad.com/)
 - [MX Gear (NL)](https://mx-deals.nl/)
+- [Ryder Gear (US)](https://www.ryder-gear.com/)
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
@@ -137,12 +138,15 @@ The link index is categorized as much as possible, and the links are added in al
 - [Kink projects](https://www.kinkprojects.com/)
 - [Latex 101](https://www.latex101.com/)
 - [Latex Crazy](https://en.latexcrazy.com/)
+- [Latex Express (UK)](https://latexexpress.com)
 - [Latex Skin](https://www.latexskin.pl/)
 - [Latextil (DE)](https://www.latextil.de/)
 - [Libidex (UK)](https://libidex.com/)
 - [Polymorphe (CA)](https://polymorphe.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
+- [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
+- [Rubber Paws (UK)](https://www.rubberpaws.co.uk/shop)
 - [Simon-O](https://www.simon-o.com/)
 - [Studio Gum](https://www.studiogum.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
@@ -186,6 +190,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Neotori](https://neotori.com/)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
+- [Topped Toys (CA)](https://toppedtoys.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
 
 ### Underwear & Clothing
