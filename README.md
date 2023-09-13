@@ -222,7 +222,8 @@ The link index is categorized as much as possible, and the links are added in al
 ### Underwear & Clothing
 - [Addicted](https://addicted.es/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
-- [Bizarre](https://www.bizzare.nl/index.php?language=en) 
+- [Bizarre](https://www.bizzare.nl/index.php?language=en)
+- [Box Menswear (UK)](https://eu.boxmenswear.com/)
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
 - [Code 22](https://www.code22.eu/)
