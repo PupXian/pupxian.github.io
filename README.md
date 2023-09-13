@@ -43,7 +43,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Tykables (US)](https://tykables.com/)
 
 ### Chastity
-
+- [BehindBarz (UK)](https://behindbarz.co.uk)
 - [Carrara Designs](https://carrara-designs.be/)
 - [Cherry Keeper (US)](https://cherrykeeper.com/Default)
 - [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
@@ -149,6 +149,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
 - [Rubber Paws (UK)](https://www.rubberpaws.co.uk/shop)
 - [Simon-O](https://www.simon-o.com/)
+- [SkinTightRubber (UK)](https://www.skintightrubber.uk)
 - [Studio Gum](https://www.studiogum.com/)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
