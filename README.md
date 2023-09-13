@@ -46,7 +46,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
 
+### Art work
+- [Jupitor](https://www.jupitor.shop/products)
+- [Space Pup Silver (UK)](https://spacepupsilver.com/)
 
+- 
 ### Chastity
 - [BehindBarz (UK)](https://behindbarz.co.uk)
 - [Carrara Designs](https://carrara-designs.be/)
@@ -64,6 +68,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Gas masks & connectors
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
+- [FE Rubber (CH)](https://www.ferubber.com/)
 - [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
@@ -76,6 +81,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
 - [Cuffed Store](https://cuffed.store)
+- [Dark-Ink](https://www.dark-ink.com/en/)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetish Factory (US)](https://store.fetishfactory.com/)
@@ -83,7 +89,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Fetters (UK)](https://fetters.co.uk/)
 - [ForFun (TH)](https://www.forfun.store/)
 - [Fort Troff (US)](https://www.forttroff.com/)
-- [Full Kit Gear (US)](https://www.fullkit.com/)  
+- [Full Kit Gear (US)](https://www.fullkit.com/)
+- [House of Montagu (UK)](https://www.hausofmontagu.com/)
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [MEO](https://www.meo.de/nl/)
 - [Mince (NL)](https://www.mince.nl/)
@@ -97,6 +104,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
 - [The Leather Man (US)](https://the-leather-man-inc.shoplightspeed.com/)
+- [Toy Versand](https://shop.toy-versand.com/en/index?language=en)
 - [Underground Fetish](https://www.underground-fetish.com/)
 
 ### Leather
@@ -110,9 +118,16 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### MX Gear
 - [24MX (NL)](https://www.24mx.nl/)
+- [Auner (DE)](https://www.auner.at/)
 - [Maciag Offroad](https://www.maciag-offroad.com/)
 - [MX Gear (NL)](https://mx-deals.nl/)
 - [Ryder Gear (US)](https://www.ryder-gear.com/)
+
+### Poppers
+- [Poppers shop (AT)](https://www.poppers-shop.at/)
+- [Poppers Aromas](https://www.poppers-aromas.eu/)
+- [Tom Rockets (DE)](https://tomrockets.com/)
+- 
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
@@ -137,7 +152,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Butcherei Lindinger (DE)](https://www.butcherei.com/)
 - [E7 Gear (US)](https://www.e7gear.com/index.aspx)
 - [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR)
-- [FE Rubber (CH)](https://www.ferubber.com/)
+- [Fond Beyond (UK)](https://fondbeyond.com/products/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Into Latex (UK)](https://www.into-latex.co.uk/)
 - [Kink Engineering (CA)](https://kinkengineering.com/)
@@ -151,8 +166,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Polymorphe (CA)](https://polymorphe.com/)
 - [Rub Addiction](https://www.rubaddiction.com/)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
+- [Rubber Fashion (DE)](https://www.rubberfashion.de/)
 - [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
 - [Rubber Paws (UK)](https://www.rubberpaws.co.uk/shop)
+- [Rubberik](https://rubberik.at/index.php?route=common/home)
 - [Simon-O](https://www.simon-o.com/)
 - [SkinTightRubber (UK)](https://www.skintightrubber.uk)
 - [Studio Gum](https://www.studiogum.com/)
@@ -169,6 +186,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Encased Latex (UK)](https://encasedlatex.bigcartel.com/)
 - [Erostek (US)](https://erostek.com/)
 - [F Machine](https://f-machine.com/)
+- [Fuck Yeah! (UK)](https://fuckyeah.uk/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
 - [Kink3D (US)](https://kink3d.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
@@ -215,6 +233,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Menderwear (FR)](https://www.menderwear.com/)
 - [Mr Riegillio](https://mr-riegillio.com/)
 - [Nasty Pig (US)](https://store.nastypig.com/)
+- [Pump!](https://wearpump.com/int/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
 - [Twink-x](https://twink-x.com/)
