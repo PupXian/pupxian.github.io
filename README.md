@@ -70,6 +70,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
+- [Cuffed Store](https://cuffed.store)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetish Factory (US)](https://store.fetishfactory.com/)
