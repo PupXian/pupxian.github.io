@@ -34,13 +34,18 @@ The link index is categorized as much as possible, and the links are added in al
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
+- [BestFixSystems (DE)](https://www.bestfixsystems.de)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
+- [Land of Genie (US)](https://landofgenie.com)
+- [Little for Big (US)](https://www.littleforbig.com)
+- [Littles Laboratory](https://littleslaboratory.com)
 - [My Inner Baby (US)](https://myinnerbaby.com/)
 - [NRU (UK)](https://www.nru.co.uk/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
+
 
 ### Chastity
 - [BehindBarz (UK)](https://behindbarz.co.uk)
