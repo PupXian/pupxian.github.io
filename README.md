@@ -79,6 +79,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Stricken Designs Gas Masks (UK)](https://strickendesigns.company.site/)
 
 ### General
+- [665 Leather (US)](https://www.665leather.com/)
 - [Army of Men (AU)](https://armyofmen.com/)
 - [Benswild](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
