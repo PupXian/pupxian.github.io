@@ -39,6 +39,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
 - [Land of Genie (US)](https://landofgenie.com)
+- [Lil Comforts (US)](https://lilcomforts.com)
 - [Little for Big (US)](https://www.littleforbig.com)
 - [Littles Laboratory](https://littleslaboratory.com)
 - [My Inner Baby (US)](https://myinnerbaby.com/)
