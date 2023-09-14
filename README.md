@@ -87,6 +87,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
 - [Cuffed Store](https://cuffed.store)
 - [Dark-Ink](https://www.dark-ink.com/en/)
+- [Dungorium (DE)](https://www.dungorium.com)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetish Factory (US)](https://store.fetishfactory.com/)
@@ -102,8 +103,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Mister B](https://www.misterb.com/)
 - [Mister Mitch (NL)](https://www.mistermitch.nl/)
 - [MistrBear (CA)](https://mistrbear.com/)
-- [MR. Riegillio](https://mr-riegillio.com/)
 - [MR-S-Leather (US)](https://www.mr-s-leather.com/)
+- [MR. Riegillio](https://mr-riegillio.com/)
 - [Oxballs (US)](https://oxballs.com/)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
@@ -152,7 +153,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
-- [Black Style](https://www.blackstyle.de/)
+- [BlackStyle](https://www.blackstyle.de/)
 - [Bizarre-Rubber-Shop](https://www.heavyrubber-shop.com/?lang=eng)
 - [Bright And Shiny Store](https://www.brightandshinystore.com/)
 - [Butcherei Lindinger (DE)](https://www.butcherei.com/)
@@ -242,6 +243,8 @@ The link index is categorized as much as possible, and the links are added in al
 - [Twink-x](https://twink-x.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
 
+### Workwear
+- [Strauss (DE)](https://www.engelbert-strauss.de)
 
 With special thanks to additional sources:
 - [Alphabatized merchants](https://airtable.com/appthzRd2Y8zt8xCX/shrxf0b4DMFxPzmQ1/tbl5y9Kqu0Sxo4GWz)
