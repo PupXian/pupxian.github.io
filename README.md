@@ -144,8 +144,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [StyleFetish (DE)](https://stylefetish.de/)
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
-### Pup Play
+### Pup / pet Play
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
+- [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
