@@ -69,6 +69,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [CrunchyCurl](https://crunchycurl.com/)
 - [TailEnds (US)](https://tailendsstudios.com)
 - [The Dealers Den Online Market place (US)](https://www.thedealersden.com/categories)
+- [Sew Dog](https://sew.dog/store)
 
 ### Gas masks & connectors
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
