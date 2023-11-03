@@ -46,9 +46,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Tykables (US)](https://tykables.com/)
 
+
 ### Art work
 - [Jupitor](https://www.jupitor.shop/products)
 - [Space Pup Silver (UK)](https://spacepupsilver.com/)
+
 
 ### Chastity
 - [BehindBarz (UK)](https://behindbarz.co.uk)
@@ -57,6 +59,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
 - [Kink3D (US)](https://kink3d.com/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
+
 
 ### Electro
 - [DG Lab](https://dungeon-lab.com/home.php)
@@ -67,9 +70,10 @@ The link index is categorized as much as possible, and the links are added in al
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
+- [Sew Dog](https://sew.dog/store)
 - [TailEnds (US)](https://tailendsstudios.com)
 - [The Dealers Den Online Market place (US)](https://www.thedealersden.com/categories)
-- [Sew Dog](https://sew.dog/store)
+
 
 ### Gas masks & connectors
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
@@ -78,6 +82,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
 - [Stricken Designs Gas Masks (UK)](https://strickendesigns.company.site/)
+
 
 ### General
 - [665 Leather (US)](https://www.665leather.com/)
@@ -131,6 +136,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [MX Gear (NL)](https://mx-deals.nl/)
 - [Ryder Gear (US)](https://www.ryder-gear.com/)
 
+
 ### Poppers
 - [Poppers shop (AT)](https://www.poppers-shop.at/)
 - [Poppers Aromas](https://www.poppers-aromas.eu/)
@@ -145,6 +151,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [StyleFetish (DE)](https://stylefetish.de/)
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
+
 ### Pup / pet Play
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Gear Factory](https://www.gear-factory.eu/shop)
@@ -152,6 +159,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
+
 
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
@@ -200,6 +208,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [X Rubber (DE)](https://xrubber.de/)
 - [Yuelan (CH)](https://nl.aliexpress.com/store/5071503?spm=a2g0o.productlist.0.0.3de46f31txNU1R)
 
+
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
 - [BestFixSystems (DE)](https://www.bestfixsystems.de)
@@ -215,12 +224,15 @@ The link index is categorized as much as possible, and the links are added in al
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
 
+
 ### SportsWear
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
+
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
 - [Mr Zentai (CH)](https://mrzentai.com/)
+
 
 ### Tactical Gear
 - [Benscore (NL)](https://benscore.com/)
@@ -229,6 +241,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Gearpoint (NL)](https://www.gearpoint.nl/)
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
+
  
 ### Toys
 - [Bad Dragon (US)](https://bad-dragon.com/)
@@ -241,6 +254,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
+
 
 ### Underwear & Clothing
 - [Addicted](https://addicted.es/)
@@ -262,8 +276,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Twink-x](https://twink-x.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
 
+
 ### Workwear
 - [Strauss (DE)](https://www.engelbert-strauss.de)
+
 
 With special thanks to additional sources:
 - [Alphabatized merchants](https://airtable.com/appthzRd2Y8zt8xCX/shrxf0b4DMFxPzmQ1/tbl5y9Kqu0Sxo4GWz)
