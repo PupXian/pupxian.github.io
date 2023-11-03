@@ -82,7 +82,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### General
 - [665 Leather (US)](https://www.665leather.com/)
 - [Army of Men (AU)](https://armyofmen.com/)
-- [Benswild](https://benswild.com/)
+- [Benswild (DE)](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
@@ -135,7 +135,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Poppers shop (AT)](https://www.poppers-shop.at/)
 - [Poppers Aromas](https://www.poppers-aromas.eu/)
 - [Tom Rockets (DE)](https://tomrockets.com/)
-- 
+
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
@@ -214,6 +214,9 @@ The link index is categorized as much as possible, and the links are added in al
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
+
+### SportsWear
+- [Odyn Athletics (US)](https://www.odyn.co.nz/)
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
