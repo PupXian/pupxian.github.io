@@ -260,6 +260,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Addicted](https://addicted.es/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
 - [Bizarre](https://www.bizzare.nl/index.php?language=en)
+- [Bock Leder (DE)](https://www.bockleder.de/index.php)
 - [Box Menswear (UK)](https://eu.boxmenswear.com/)
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
