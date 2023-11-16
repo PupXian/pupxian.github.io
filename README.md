@@ -169,6 +169,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Butcherei Lindinger (DE)](https://www.butcherei.com/)
 - [Coco Latex](https://www.etsy.com/nl/shop/CocoLatex)
 - [E7 Gear (US)](https://www.e7gear.com/index.aspx)
+- [Elena Latex](https://elenalatex.com/)
 - [EuroCatsuits](https://www.eurocatsuits.com/contact.php?la=nl&currency=EUR)
 - [FeRubber (CH)](https://www.ferubber.com)
 - [Fetish Freak (UK)](https://www.fetishfreak.co.uk/onlinestore/index.php)
