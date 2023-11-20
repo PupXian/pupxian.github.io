@@ -175,6 +175,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Fetish Freak (UK)](https://www.fetishfreak.co.uk/onlinestore/index.php)
 - [Fond Beyond (UK)](https://fondbeyond.com/products/)
 - [Future Fetish](https://futurefetish.com)
+- [Heavy Rubber](https://www.heavyrubber-shop.com/?lang=eng)
 - [Herr Amsterdam](https://herr.amsterdam/shop)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Into Latex (UK)](https://www.into-latex.co.uk/)
