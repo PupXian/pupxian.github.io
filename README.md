@@ -254,6 +254,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Hankey's Toys (US)](https://www.mrhankeystoys.com/)
 - [Naughty Fox](https://naughty-fox.com/)
 - [Neotori](https://neotori.com/)
+- [Nothosaur (US)](https://nothosaur.com/)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
