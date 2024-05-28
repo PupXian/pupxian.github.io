@@ -31,6 +31,9 @@ By using this website, you agree to the limitations of liability set out in this
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
+###Updates
+2024-05-28 Added serveral stores
+
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
@@ -113,6 +116,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [MR-S-Leather (US)](https://www.mr-s-leather.com/)
 - [MR. Riegillio](https://mr-riegillio.com/)
 - [Oxballs (US)](https://oxballs.com/)
+- [Peitschenhandel Berlin (DE)](https://peitschenhandel.de/)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
@@ -147,7 +151,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
-- [Dungeion Delights (US)](https://www.dungeondelights.com/online-store)
+- [Dungeon Delights (US)](https://www.dungeondelights.com/online-store)
 - [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
 - [StyleFetish (DE)](https://stylefetish.de/)
