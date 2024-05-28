@@ -31,7 +31,7 @@ By using this website, you agree to the limitations of liability set out in this
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
-###Updates
+### Updates
 2024-05-28 Added serveral stores
 
 ### ABDL
