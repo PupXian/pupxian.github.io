@@ -66,10 +66,9 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Electro
 - [DG Lab](https://dungeon-lab.com/home.php)
-- [Estim Emporium (UK)](https://www.estim-emporium.net/)
 - [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
 - [Erostek (US)](https://erostek.com/)
-
+- [Estim Emporium (UK)](https://www.estim-emporium.net/)
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
