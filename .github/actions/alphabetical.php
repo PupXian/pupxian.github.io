@@ -20,8 +20,12 @@ $categories = [];
 
 $links = [];
 
+$unordered_categories = [
+  '### Updates',
+];
+
 foreach($lines as $line) {
-  if (str_starts_with($line, '### ')) {
+  if (str_starts_with($line, '### ') && ! in_array($line, $unordered_categories)) {
     $category = $line;
     $categories[] = $line;
     $links = [];
