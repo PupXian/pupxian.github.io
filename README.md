@@ -32,7 +32,9 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+2024-06-24 Added R&Co
 2024-05-28 Added serveral stores
+
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
@@ -116,6 +118,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [MR. Riegillio](https://mr-riegillio.com/)
 - [Oxballs (US)](https://oxballs.com/)
 - [Peitschenhandel Berlin (DE)](https://peitschenhandel.de/)
+- [R&Co (DE)](https://www.randco.de/) 
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
