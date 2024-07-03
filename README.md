@@ -32,6 +32,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+2024-07-03 Added AASSOXX
 2024-06-24 Added R&Co
 2024-05-28 Added serveral stores
 
@@ -270,6 +271,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 
 ### Underwear & Clothing
+- [AASSSOX](https://aasssoxx.pl/) 
 - [Addicted](https://addicted.es/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
 - [Bizarre](https://www.bizzare.nl/index.php?language=en)
