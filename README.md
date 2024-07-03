@@ -30,7 +30,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### Updates
 * 2024-07-03 Added AASSOXX and shortened the disclaimer slightly
 * 2024-06-24 Added R&Co
-* 2024-05-28 Added serveral stores
+* 2024-05-28 Added several stores
 
 
 ### ABDL
