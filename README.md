@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-07-10 Added  4 shops in ABDL, 5 shops in general, 1 in clothing, 1 in pup / pet play,  1 in leather, and 3 in toys
 * 2024-07-03 Added AASSOXX and shortened the disclaimer slightly
 * 2024-06-24 Added R&Co
 * 2024-05-28 Added several stores
@@ -36,6 +37,8 @@ The link index is categorized as much as possible, and the links are added in al
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
+- [Allinoneco (UK)](https://allinoneco.co.uk)
+- [BigTot (US)](https://www.etsy.com/pl/shop/BigTot)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
@@ -43,9 +46,11 @@ The link index is categorized as much as possible, and the links are added in al
 - [Lil Comforts (US)](https://lilcomforts.com)
 - [Little for Big (US)](https://www.littleforbig.com)
 - [Littles Laboratory](https://littleslaboratory.com)
+- [mmmm (SK)](https://mmmm.sk)
 - [My Inner Baby (US)](https://myinnerbaby.com/)
 - [NRU (UK)](https://www.nru.co.uk/)
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
+- [Privatina](https://privatina-shop.com)
 - [Tykables (US)](https://tykables.com/)
 
 
@@ -93,6 +98,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
+- [Clone Zone (UK)](https://www.clonezonedirect.co.uk)  
 - [Cuffed Store](https://cuffed.store)
 - [Dark-Ink](https://www.dark-ink.com/en/)
 - [Dungorium (DE)](https://www.dungorium.com)
@@ -115,19 +121,24 @@ The link index is categorized as much as possible, and the links are added in al
 - [MR. Riegillio](https://mr-riegillio.com/)
 - [Oxballs (US)](https://oxballs.com/)
 - [Peitschenhandel Berlin (DE)](https://peitschenhandel.de/)
-- [R&Co (DE)](https://www.randco.de/) 
+- [R&Co (DE)](https://www.randco.de/)
+- [Refform (PL)](https://refform.com)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
+- [Spartas Harness](https://www.spartasharness.com)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
 - [The Leather Man (US)](https://the-leather-man-inc.shoplightspeed.com/)
 - [Toy Versand](https://shop.toy-versand.com/en/index?language=en)
+- [UberKinky (UK/US)](https://www.uberkinky.com)
 - [Underground Fetish](https://www.underground-fetish.com/)
+- [Viro (PL)](https://www.viro.pl)
 
 ### Leather
 - [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
 - [House of Basciano (CA)](https://houseofbasciano.com/)
 - [Parus Leder](https://parus-leder.de/en/)
+- [Scrapyard leather (CA)](https://www.scrapyardleather.com)
 - [Spitfire Leather (UK)](https://www.spitfireleather.com/)
 - [Tavaron's Leather](https://www.etsy.com/shop/TAVARONsLEATHER)
 - [Top To Bottom Leathers (UK)](https://www.top-to-bottom-leathers.co.uk/)
@@ -164,6 +175,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Jet Pup (US)](https://jet-pup.com/)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
+- [Tuftsquad (BR)](https://tuftsquad.com.br)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
 
@@ -257,9 +269,12 @@ The link index is categorized as much as possible, and the links are added in al
 - [Creature Feature Toys (US)](https://creaturefeaturetoys.com/)
 - [Flurb](https://flurb.me/)
 - [Hankey's Toys (US)](https://www.mrhankeystoys.com/)
+- [Julliet Toys (CH)](https://www.juliettoys.com)
+- [Knotme](https://knotme.eu)
 - [Naughty Fox](https://naughty-fox.com/)
 - [Neotori](https://neotori.com/)
 - [Nothosaur (US)](https://nothosaur.com/)
+- [Primal hardwere (US)](https://www.primalhardwere.com)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
@@ -285,6 +300,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Pump!](https://wearpump.com/int/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
+- [Timoteo (US)](https://timoteo.net)
 - [Twink-x](https://twink-x.com/)
 - [Underwear store (NL)](https://www.underwear-store.nl/)
 
