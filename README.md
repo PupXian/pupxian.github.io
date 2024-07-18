@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-07-18 Added lovense shop 
 * 2024-07-11 Added Fox Racing
 * 2024-07-10 Added  4 shops in ABDL, 5 shops in general, 1 in clothing, 1 in pup / pet play,  1 in leather, and 3 in toys
 * 2024-07-03 Added AASSOXX and shortened the disclaimer slightly
