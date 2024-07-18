@@ -112,6 +112,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Fort Troff (US)](https://www.forttroff.com/)
 - [Full Kit Gear (US)](https://www.fullkit.com/)
 - [House of Montagu (UK)](https://www.hausofmontagu.com/)
+- [Lovense toys](https://www.lovense.com/) 
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [MEO](https://www.meo.de/nl/)
 - [Mince (NL)](https://www.mince.nl/)
