@@ -177,6 +177,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
+- [My K9 EU](https://www.my-k9.eu/en/embroidered-dog-collars-with-name-personalised)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Tuftsquad (BR)](https://tuftsquad.com.br)
