@@ -246,8 +246,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
+- [Smitizen (EU/UK/USA)[https://www.smitizen.com/product-category/local-warehouse] 
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
+
 
 
 ### SportsWear
