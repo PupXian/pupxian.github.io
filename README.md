@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-08-22 Added Latwoski, Steelwerks Extreme (Chastity), Oieffur (toys)
 * 2024-08-19 Added Smitizen (specialized) and My K9 EU (Collars)
 * 2024-07-18 Added lovense shop 
 * 2024-07-11 Added Fox Racing
@@ -68,7 +69,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Cherry Keeper (US)](https://cherrykeeper.com/Default)
 - [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
 - [Kink3D (US)](https://kink3d.com/)
+- [Latowski](http://www.latowski.de/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
+- [Steelwerks Extreme (CA)](https://www.steelwerksextreme.com)
+
 
 
 ### Electro
@@ -247,7 +251,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
-- [Smitizen (EU/UK/USA)[https://www.smitizen.com/product-category/local-warehouse] 
+- [Smitizen (EU/UK/USA)](https://www.smitizen.com/product-category/local-warehouse)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
 
@@ -282,11 +286,13 @@ The link index is categorized as much as possible, and the links are added in al
 - [Naughty Fox](https://naughty-fox.com/)
 - [Neotori](https://neotori.com/)
 - [Nothosaur (US)](https://nothosaur.com/)
+- [Oieffur (US)](https://oieffur.com)
 - [Primal hardwere (US)](https://www.primalhardwere.com)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
+
 
 
 ### Underwear & Clothing
