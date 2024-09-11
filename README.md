@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-09-11 Updated strickens design website url
 * 2024-09-11 Added Untitled rubber(latex) & Blackdog shop (leather) 
 * 2024-08-22 Added Latwoski, Steelwerks Extreme (Chastity), Oieffur (toys)
 * 2024-08-19 Added Smitizen (specialized) and My K9 EU (Collars)
@@ -96,7 +97,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
-- [Stricken Designs Gas Masks (UK)](https://strickendesigns.company.site/)
+- [Stricken Designs Gas Masks (UK)](https://www.strickendesigns.com)
 
 
 ### General
