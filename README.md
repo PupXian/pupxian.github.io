@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-09-11 Added Untitled rubber(latex) & Blackdog shop (leather) 
 * 2024-08-22 Added Latwoski, Steelwerks Extreme (Chastity), Oieffur (toys)
 * 2024-08-19 Added Smitizen (specialized) and My K9 EU (Collars)
 * 2024-07-18 Added lovense shop 
@@ -144,6 +145,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Leather
 - [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
+- [Blackdog Shop](https://blackdog-shop.com) 
 - [House of Basciano (CA)](https://houseofbasciano.com/)
 - [Parus Leder](https://parus-leder.de/en/)
 - [Scrapyard leather (CA)](https://www.scrapyardleather.com)
@@ -233,6 +235,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Studio Gum](https://www.studiogum.com/)
 - [Twist My Rubber Arm (CA)](https://www.twistmyrubberarm.com)
 - [UNIQDSN (US)](https://uniqdsn.com/)
+- [Untitled Rubber](https://www.untitledrubber.com/shop)
 - [Westward Bound (UK)](https://www.westwardbound.com)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
