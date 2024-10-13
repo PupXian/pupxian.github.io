@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-10-13 Added Electrastim ship (Electro)
 * 2024-10-07 Repaired Dungeon Lab link 
 * 2024-09-11 Updated strickens design website url
 * 2024-09-11 Added Untitled rubber(latex) & Blackdog shop (leather) 
@@ -81,6 +82,7 @@ The link index is categorized as much as possible, and the links are added in al
 ### Electro
 - [DG Lab](https://www.dungeon-lab.com/home.php) 
 - [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
+- [Electrastim (UK/US/EU)](https://www.electrastim.com/)
 - [Erostek (US)](https://erostek.com/)
 - [Estim Emporium (UK)](https://www.estim-emporium.net/)
 
