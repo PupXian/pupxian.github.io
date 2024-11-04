@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2024-11-04 Added pupstyle
 * 2024-10-13 Added Electrastim ship (Electro)
 * 2024-10-07 Repaired Dungeon Lab link 
 * 2024-09-11 Updated strickens design website url
@@ -190,6 +191,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Jet Pup (US)](https://jet-pup.com/)
 - [My K9 EU](https://www.my-k9.eu/en/embroidered-dog-collars-with-name-personalised)
 - [Puppy Pride (UK)](https://puppypride.store/)
+- [pupstyle (DE)](https://pupstyle.de)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
 - [Tuftsquad (BR)](https://tuftsquad.com.br)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
