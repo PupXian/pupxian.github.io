@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
 * 2024-11-04 Added pupstyle
 * 2024-10-13 Added Electrastim ship (Electro)
@@ -95,6 +96,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Sew Dog](https://sew.dog/store)
 - [TailEnds (US)](https://tailendsstudios.com)
 - [The Dealers Den Online Market place (US)](https://www.thedealersden.com/categories)
+
+### Gags
+- [Moan Speak](https://moanspeak.com/)
+- [SilenCilicone](https://silencilicone.com/)
 
 
 ### Gas masks & connectors
