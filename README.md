@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
 * 2024-11-04 Added pupstyle
@@ -78,7 +79,10 @@ The link index is categorized as much as possible, and the links are added in al
 - [Kink3D (US)](https://kink3d.com/)
 - [Latowski](http://www.latowski.de/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
+- [Neosteel](https://neosteel.de/en/shop/)
 - [Steelwerks Extreme (CA)](https://www.steelwerksextreme.com)
+- [Steelworxx](https://www.steelworxx.de/Stainless-steel)
+
 
 
 
@@ -88,7 +92,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Electrastim (UK/US/EU)](https://www.electrastim.com/)
 - [Erostek (US)](https://erostek.com/)
 - [Estim Emporium (UK)](https://www.estim-emporium.net/)
-- [Screamlabs (UK)] (https://www.screamlabs.co.uk)
+- [Screamlabs (UK)](https://www.screamlabs.co.uk)
 
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
