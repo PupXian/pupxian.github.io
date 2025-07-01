@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
@@ -287,12 +288,15 @@ The link index is categorized as much as possible, and the links are added in al
 
 
 ### Tactical Gear
+- [Airsoft Legends (NL)](https://www.airsoft-legends.nl/en/)
 - [Benscore (NL)](https://benscore.com/)
 - [DarkShop](https://www.darkshop.nl/)
 - [Douwe's Dump (NL)](https://douwesdump.nl/)
+- [EOD Gear (US)](https://www.eod-gear.com/) 
 - [Gearpoint (NL)](https://www.gearpoint.nl/)
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
+
 
  
 ### Toys
