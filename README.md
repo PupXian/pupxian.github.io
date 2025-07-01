@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical)
+* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), https://kinkstar.store/ (MX gear)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
@@ -176,6 +176,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Auner (DE)](https://www.auner.at/)
 - [FC Moto (DE)](https://www.fc-moto.de/)
 - [Fox Racing](https://nl.foxracing.com/sale/)
+- [Kink-star (DE)] (https://kinkstar.store/)
 - [Maciag Offroad](https://www.maciag-offroad.com/)
 - [MotorCross AAD (NL)](https://www.motorcrossaad-webshop.nl/)
 - [MX Gear (NL)](https://mx-deals.nl/)
