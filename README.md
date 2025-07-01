@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-07-01 Added UF PRO 
 * 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
@@ -298,7 +299,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Gearpoint (NL)](https://www.gearpoint.nl/)
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
-
+- [UF Pro (NL)](https://ufpro.com/)
 
  
 ### Toys
