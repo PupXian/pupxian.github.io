@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), https://kinkstar.store/ (MX gear)
+* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
