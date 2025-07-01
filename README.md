@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (CH) 
+* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
@@ -277,7 +277,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Smitizen (EU/UK/USA)](https://www.smitizen.com/product-category/local-warehouse)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
-
+- [Ut disguise master mask (US)] (https://www.utdisguisemastermask.com/collections/fetish-masks)
 
 
 ### SportsWear
