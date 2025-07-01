@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-07-01 Weredog
 * 2025-07-01 Added UF PRO 
 * 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
@@ -319,7 +320,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
-
+- [Weredog (UK)](https://weredog.co.uk/)
 
 
 ### Underwear & Clothing
