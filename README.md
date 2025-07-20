@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-07-20 House Of Denial (UK)
 * 2025-07-01 Weredog
 * 2025-07-01 Added UF PRO 
 * 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
@@ -79,6 +80,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Carrara Designs](https://carrara-designs.be/)
 - [Cherry Keeper (US)](https://cherrykeeper.com/Default)
 - [Holy Trainer (SW)](https://www.holytrainer.com/male-chastity-device/male-chastity-device.asp)
+- [House of Denial (UK)](https://www.houseofdenial.com/collections/male-chastity-devices)
 - [Kink3D (US)](https://kink3d.com/)
 - [Latowski](http://www.latowski.de/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
