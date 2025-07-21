@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-07-21 Pup sitter shop (US)
+* 2025-07-21 Pup sitter shop (US), Adidas Wrestling
 * 2025-07-20 House Of Denial (UK)
 * 2025-07-01 Weredog
 * 2025-07-01 Added UF PRO 
@@ -181,7 +181,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Auner (DE)](https://www.auner.at/)
 - [FC Moto (DE)](https://www.fc-moto.de/)
 - [Fox Racing](https://nl.foxracing.com/sale/)
-- [Kink-star (DE)] (https://kinkstar.store/)
+- [Kink-star (DE)](https://kinkstar.store/)
 - [Maciag Offroad](https://www.maciag-offroad.com/)
 - [MotorCross AAD (NL)](https://www.motorcrossaad-webshop.nl/)
 - [MX Gear (NL)](https://mx-deals.nl/)
@@ -287,8 +287,8 @@ The link index is categorized as much as possible, and the links are added in al
 
 
 ### SportsWear
+- [Adidas Wrestling]( https://adidaswrestling.com/collections/wrestling-singlets)
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
-
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
