@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-07-21 Pup sitter shop (US)
 * 2025-07-20 House Of Denial (UK)
 * 2025-07-01 Weredog
 * 2025-07-01 Added UF PRO 
@@ -207,6 +208,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
 - [My K9 EU](https://www.my-k9.eu/en/embroidered-dog-collars-with-name-personalised)
+- [Pup sitter shop (US)](https://pupsittershop.com/)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [pupstyle (DE)](https://pupstyle.de)
 - [Ram Shackle Leather (US)](https://www.ramshacklegear.com/)
