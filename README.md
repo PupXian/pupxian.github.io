@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
 * 2025-07-21 Pup sitter shop (US), Adidas Wrestling
 * 2025-07-20 House Of Denial (UK)
 * 2025-07-01 Weredog
@@ -197,7 +198,6 @@ The link index is categorized as much as possible, and the links are added in al
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
 - [Dungeon Delights (US)](https://www.dungeondelights.com/online-store)
-- [Sling King](https://www.slingking.eu/)
 - [Steel Toys (NL)](https://steeltoys.nl/)
 - [StyleFetish (DE)](https://stylefetish.de/)
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
@@ -283,7 +283,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Smitizen (EU/UK/USA)](https://www.smitizen.com/product-category/local-warehouse)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
-- [Ut disguise master mask (US)] (https://www.utdisguisemastermask.com/collections/fetish-masks)
+- [Ut disguise master mask (US)](https://www.utdisguisemastermask.com/collections/fetish-masks)
 
 
 ### SportsWear
@@ -295,12 +295,13 @@ The link index is categorized as much as possible, and the links are added in al
 - [Mr Zentai (CH)](https://mrzentai.com/)
 
 
-### Tactical Gear
+### Tactical & tech Gear
 - [Airsoft Legends (NL)](https://www.airsoft-legends.nl/en/)
 - [Benscore (NL)](https://benscore.com/)
 - [DarkShop](https://www.darkshop.nl/)
 - [Douwe's Dump (NL)](https://douwesdump.nl/)
 - [EOD Gear (US)](https://www.eod-gear.com/) 
+- [Fabric of the universe (US)](https://www.fabricoftheuniverse.com) 
 - [Gearpoint (NL)](https://www.gearpoint.nl/)
 - [Jopies webshop (NL)](https://www.jopieswebshop.nl/)
 - [NL Tactical (NL)](https://www.nltactical.nl/en/)
