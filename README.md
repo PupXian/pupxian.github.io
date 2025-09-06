@@ -362,3 +362,12 @@ The link index is categorized as much as possible, and the links are added in al
 
 With special thanks to additional sources:
 - [Alphabatized merchants](https://airtable.com/appthzRd2Y8zt8xCX/shrxf0b4DMFxPzmQ1/tbl5y9Kqu0Sxo4GWz)
+
+
+# Additional interesting kink sites
+
+## Chastity
+[Chaster](https://chaster.app/)
+
+## Hypno
+[BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
