@@ -28,7 +28,8 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-09-06  Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
+* 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
+* 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
 * 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
 * 2025-07-21 Pup sitter shop (US), Adidas Wrestling
 * 2025-07-20 House Of Denial (UK)
