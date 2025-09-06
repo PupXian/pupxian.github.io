@@ -2,30 +2,37 @@ This page is created to help newcomers to the hobby by providing a curated list 
 
 # Disclaimer
 
-Please read this disclaimer carefully before using this website.
-
-## Age Requirement
-
-You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older.
-
-## Report Broken Links or Suggest New Sites
-
-If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
-
-## No Endorsement or Responsibility for External Links
-
-The content provided on this website is for informational purposes only. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops.
-
-## Use at Your Own Risk
-
-Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops.
-
-We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
+You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older. The content provided on this website is for informational purposes only. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops. Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops. We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
 
 By using this website, you agree to the limitations of liability set out in this disclaimer.
 
+
 ## Link index
 The link index is categorized as much as possible, and the links are added in alphabetical order.
+
+## Table of Contents
+[ABDL](#abdl)
+[Art-work](#art-work)
+[Chastity](#chastity)
+[Electro](#electro)
+[Furry](#furry)
+[Gags](#gags)
+[Gas masks & connectors](#gas-masks--connectors)
+[General](#general)
+[Leather](#leather)
+[MX Gear](#mx-gear)
+[Poppers](#poppers)
+[Playroom](#playroom)
+[Pup / pet Play](#pup--pet-play)
+[Rubber / Latex](#rubber--latex)
+[Specialized](#specialized)
+[Sportswear](#sportswear)
+[Superhero / Zentai](#superhero--zentai)
+[Tactical & tech Gear](#tactical--tech-gear)
+[Toys](#toys)
+[Underwear & Clothing](#underwear--clothing)
+[Workwear](#workwear)
+
 
 ### Updates
 * 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
@@ -290,7 +297,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Ut disguise master mask (US)](https://www.utdisguisemastermask.com/collections/fetish-masks)
 
 
-### SportsWear
+### Sportswear
 - [Adidas Wrestling]( https://adidaswrestling.com/collections/wrestling-singlets)
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
 
@@ -372,3 +379,7 @@ With special thanks to additional sources:
 
 ## Hypno
 [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
+
+# Report Broken Links or Suggest New Sites
+If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
+
