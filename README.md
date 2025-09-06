@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
+* 2025-09-06  Added KinkFox (latex)
 * 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
 * 2025-07-21 Pup sitter shop (US), Adidas Wrestling
 * 2025-07-20 House Of Denial (UK)
@@ -236,6 +237,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Into Latex (UK)](https://www.into-latex.co.uk/)
 - [Kink Engineering (CA)](https://kinkengineering.com/)
 - [Kink projects](https://www.kinkprojects.com/)
+- [KinkFox (CH)](https://kinkfox.com/)
 - [Latex 101](https://www.latex101.com/)
 - [Latex Catfish (CH)](https://www.latexcatfish.com)
 - [Latex Crazy](https://en.latexcrazy.com/)
