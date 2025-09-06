@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ### Updates
-* 2025-09-06  Added KinkFox (latex), AssTricks (clothing)
+* 2025-09-06  Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
 * 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
 * 2025-07-21 Pup sitter shop (US), Adidas Wrestling
 * 2025-07-20 House Of Denial (UK)
@@ -263,6 +263,7 @@ The link index is categorized as much as possible, and the links are added in al
 - [Twist My Rubber Arm (CA)](https://www.twistmyrubberarm.com)
 - [UNIQDSN (US)](https://uniqdsn.com/)
 - [Untitled Rubber](https://www.untitledrubber.com/shop)
+- [Villain garcon](https://vilaingarcon.com/)
 - [Westward Bound (UK)](https://www.westwardbound.com)
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
