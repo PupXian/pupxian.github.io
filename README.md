@@ -35,6 +35,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 
 ### Updates
+* 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
 * 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
 * 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
 * 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
@@ -308,6 +309,7 @@ The link index is categorized as much as possible, and the links are added in al
 
 ### Tactical & tech Gear
 - [Airsoft Legends (NL)](https://www.airsoft-legends.nl/en/)
+- [Attire Invention (DE)](https://attire-invention.de/)
 - [Benscore (NL)](https://benscore.com/)
 - [DarkShop](https://www.darkshop.nl/)
 - [Douwe's Dump (NL)](https://douwesdump.nl/)
