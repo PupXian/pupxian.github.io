@@ -12,7 +12,7 @@ function assert_string_array_is_in_alphabetical_order($array) {
 }
 
 $readme = file_get_contents(__DIR__ . '/../../README.md');
-preg_match_all('/## Link index(.*)^#{0,2} /msU', $readme, $matches);
+preg_match_all('/### Updates(.*)^#{0,2} /msU', $readme, $matches);
 $lines = explode(PHP_EOL, $matches[1][0]);
 
 $category = null;
@@ -20,12 +20,8 @@ $categories = [];
 
 $links = [];
 
-$unordered_categories = [
-  '### Updates',
-];
-
 foreach($lines as $line) {
-  if (str_starts_with($line, '### ') && ! in_array($line, $unordered_categories)) {
+  if (str_starts_with($line, '### ')) {
     $category = $line;
     $categories[] = $line;
     $links = [];
