@@ -22,7 +22,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter 
+* 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
 * 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
 * 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
 * 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
@@ -88,6 +88,7 @@ By using this website, you agree to the limitations of liability set out in this
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
+- [Nomad Complex](https://nomadcomplex.com/)
 - [Sew Dog](https://sew.dog/store)
 - [TailEnds (US)](https://tailendsstudios.com)
 - [The Dealers Den Online Market place (US)](https://www.thedealersden.com/categories)
@@ -126,6 +127,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Fort Troff (US)](https://www.forttroff.com/)
 - [Full Kit Gear (US)](https://www.fullkit.com/)
 - [House of Montagu (UK)](https://www.hausofmontagu.com/)
+- [Indecent (NL)](Indecent.nl)
 - [Lovense toys](https://www.lovense.com/) 
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [MEO](https://www.meo.de/nl/)
@@ -136,6 +138,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [MR-S-Leather (US)](https://www.mr-s-leather.com/)
 - [MR. Riegillio](https://mr-riegillio.com/)
 - [Oxballs (US)](https://oxballs.com/)
+- [Pabo (NL)](https://pabo.nl) 
 - [Peitschenhandel Berlin (DE)](https://peitschenhandel.de/)
 - [R&Co (DE)](https://www.randco.de/)
 - [Refform (PL)](https://refform.com)
@@ -155,6 +158,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Blackdog Shop](https://blackdog-shop.com) 
 - [House of Basciano (CA)](https://houseofbasciano.com/)
 - [Parus Leder](https://parus-leder.de/en/)
+- [Saxos (PL)](https://men.saxos.eu/)
 - [Scrapyard leather (CA)](https://www.scrapyardleather.com)
 - [Spitfire Leather (UK)](https://www.spitfireleather.com/)
 - [Tavaron's Leather](https://www.etsy.com/shop/TAVARONsLEATHER)
@@ -277,6 +281,7 @@ By using this website, you agree to the limitations of liability set out in this
 ### Sportswear
 - [Adidas Wrestling]( https://adidaswrestling.com/collections/wrestling-singlets)
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
+- [SneakerMask (ES)](Sneakermask.com) 
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
@@ -330,6 +335,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Code 22](https://www.code22.eu/)
 - [Gear Berlin](https://gearberlin.com/)
 - [Jor Wear (Co)](https://www.jorwear.com/)
+- [Kinky Locked (PL)](Kinkylocked.com)
 - [Long john Bodywear (NL)](https://www.longjohnbodywear.nl/)
 - [Maskulo](https://maskulo.com/)
 - [Menderwear (FR)](https://www.menderwear.com/)
