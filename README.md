@@ -1,5 +1,12 @@
 This page is created to help newcomers to the hobby by providing a curated list of webshops, as these may not always be easily discoverable through search engines. This is a community-driven effort aimed at benefiting everyone interested in the hobby.
 
+<style>
+table th {
+  font-weight: normal;   /* geen vetgedrukte tekst */
+  text-align: left;      /* uitlijnen zoals bodycells */
+}
+</style>
+
 # Disclaimer
 
 You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older. The content provided on this website is for informational purposes only. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops. Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops. We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
