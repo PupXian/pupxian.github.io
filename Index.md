@@ -1,5 +1,3 @@
----
----
 This page is created to help newcomers to the hobby by providing a curated list of webshops, as these may not always be easily discoverable through search engines. This is a community-driven effort aimed at benefiting everyone interested in the hobby.
 
 # Disclaimer
