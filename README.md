@@ -11,30 +11,22 @@ By using this website, you agree to the limitations of liability set out in this
 The link index is categorized as much as possible, and the links are added in alphabetical order.
 
 ## Table of Contents
-[ABDL](#abdl)
-[Art-work](#art-work)
-[Chastity](#chastity)
-[Electro](#electro)
-[Furry](#furry)
-[Gags](#gags)
-[Gas masks & connectors](#gas-masks--connectors)
-[General](#general)
-[Leather](#leather)
-[MX Gear](#mx-gear)
-[Poppers](#poppers)
-[Playroom](#playroom)
-[Pup / pet Play](#pup--pet-play)
-[Rubber / Latex](#rubber--latex)
-[Specialized](#specialized)
-[Sportswear](#sportswear)
-[Superhero / Zentai](#superhero--zentai)
-[Tactical & tech Gear](#tactical--tech-gear)
-[Toys](#toys)
-[Underwear & Clothing](#underwear--clothing)
-[Workwear](#workwear)
+
+### Kink / Gear shops
+| [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
+| :--- | :--- | :--- | :--- | :--- | :--- | :--- |
+| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex)  | 
+| [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | [Workwear](#workwear) | 
+
+### Other resources
+[Additional interesting kink sites](#additional-interesting-kink-sites)
+
+
+
 
 
 ### Updates
+* 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter 
 * 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
 * 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
 * 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
@@ -47,20 +39,6 @@ The link index is categorized as much as possible, and the links are added in al
 * 2025-05-05 Added Neosteel and Steelworxx (chastity)
 * 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
 * 2025-03-05 Added screamlabs (Electro)
-* 2024-11-04 Added pupstyle
-* 2024-10-13 Added Electrastim ship (Electro)
-* 2024-10-07 Repaired Dungeon Lab link 
-* 2024-09-11 Updated strickens design website url
-* 2024-09-11 Added Untitled rubber(latex) & Blackdog shop (leather) 
-* 2024-08-22 Added Latwoski, Steelwerks Extreme (Chastity), Oieffur (toys)
-* 2024-08-19 Added Smitizen (specialized) and My K9 EU (Collars)
-* 2024-07-18 Added lovense shop 
-* 2024-07-11 Added Fox Racing
-* 2024-07-10 Added  4 shops in ABDL, 5 shops in general, 1 in clothing, 1 in pup / pet play,  1 in leather, and 3 in toys
-* 2024-07-03 Added AASSOXX and shortened the disclaimer slightly
-* 2024-06-24 Added R&Co
-* 2024-05-28 Added several stores
-
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
@@ -200,9 +178,11 @@ The link index is categorized as much as possible, and the links are added in al
 
 
 ### Poppers
-- [Poppers shop (AT)](https://www.poppers-shop.at/)
 - [Poppers Aromas](https://www.poppers-aromas.eu/)
+- [Poppers Kopen (NL)](https://popperskopen.nl/)
+- [Poppers shop (AT)](https://www.poppers-shop.at/)
 - [Tom Rockets (DE)](https://tomrockets.com/)
+
 
 
 ### Playroom
@@ -381,6 +361,10 @@ With special thanks to additional sources:
 
 ## Hypno
 [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
+
+## BDSM lists
+[kinksheet](https://kinksheet.com/)
+[BDSM Limits](https://www.bdsm-limits.com/)
 
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
