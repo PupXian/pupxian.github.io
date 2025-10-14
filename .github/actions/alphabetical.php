@@ -11,7 +11,7 @@ function assert_string_array_is_in_alphabetical_order($array) {
   exit(1);
 }
 
-$readme = file_get_contents(__DIR__ . '/../../README.md');
+$readme = file_get_contents(__DIR__ . '/../../Index.md');
 preg_match_all('/### Updates(.*)^#{0,2} /msU', $readme, $matches);
 $lines = explode(PHP_EOL, $matches[1][0]);
 
