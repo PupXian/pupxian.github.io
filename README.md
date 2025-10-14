@@ -16,11 +16,9 @@ By using this website, you agree to the limitations of liability set out in this
 | [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex)  | 
 | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | [Workwear](#workwear) | 
 
+
 ### Other resources
 [Additional interesting kink sites](#additional-interesting-kink-sites)
-
-
-
 
 
 ### Updates
