@@ -370,6 +370,7 @@ With special thanks to additional sources:
 
 ## Hypno
 - [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
+- [S10 Boy's hypno Audio files (Telegram)](https://t.me/s10boi_hypno)
 
 ## BDSM lists
 - [kinksheet](https://kinksheet.com/)
