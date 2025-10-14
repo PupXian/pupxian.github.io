@@ -363,7 +363,7 @@ With special thanks to additional sources:
 - [Alphabatized merchants](https://airtable.com/appthzRd2Y8zt8xCX/shrxf0b4DMFxPzmQ1/tbl5y9Kqu0Sxo4GWz)
 
 
-# Additional interesting kink sites
+# Additional interesting kink sites / Channels
 
 ## Chastity
 - [Chaster](https://chaster.app/)
