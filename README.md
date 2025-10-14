@@ -9,6 +9,7 @@ By using this website, you agree to the limitations of liability set out in this
 ## Table of Contents
 
 ### Kink / Gear shops
+
 | [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
 | [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex)  | 
