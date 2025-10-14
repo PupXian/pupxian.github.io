@@ -6,10 +6,6 @@ You must be 18 years of age or older to use this website. By using this website,
 
 By using this website, you agree to the limitations of liability set out in this disclaimer.
 
-
-## Link index
-The link index is categorized as much as possible, and the links are added in alphabetical order.
-
 ## Table of Contents
 
 ### Kink / Gear shops
