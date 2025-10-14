@@ -366,14 +366,14 @@ With special thanks to additional sources:
 # Additional interesting kink sites
 
 ## Chastity
-[Chaster](https://chaster.app/)
+- [Chaster](https://chaster.app/)
 
 ## Hypno
-[BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
+- [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
 
 ## BDSM lists
-[kinksheet](https://kinksheet.com/)
-[BDSM Limits](https://www.bdsm-limits.com/)
+- [kinksheet](https://kinksheet.com/)
+- [BDSM Limits](https://www.bdsm-limits.com/)
 
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
