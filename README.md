@@ -2,8 +2,8 @@ This page is created to help newcomers to the hobby by providing a curated list 
 
 <style>
 table th {
-  font-weight: normal; !important;  /* geen vetgedrukte tekst */
-  text-align: left;      /* uitlijnen zoals bodycells */
+  font-weight: normal !important;  
+  text-align: left !Important;   
 }
   
 </style>
