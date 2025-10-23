@@ -29,6 +29,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2025-10-23 Added Despair lab (Gas masks & Hoses) 
 * 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
 * 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
 * 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
@@ -107,11 +108,13 @@ By using this website, you agree to the limitations of liability set out in this
 
 ### Gas masks & connectors
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
+- [Despair Lab](https://despairlab.com/)
 - [FE Rubber (CH)](https://www.ferubber.com/)
 - [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
 - [Stricken Designs Gas Masks (UK)](https://www.strickendesigns.com)
+
 
 
 ### General
