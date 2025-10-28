@@ -29,6 +29,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2025-10-28 Added Instructions in the additional interesting kink sites section 
 * 2025-10-23 Added Despair lab (Gas masks & Hoses) 
 * 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
 * 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
@@ -373,12 +374,16 @@ With special thanks to additional sources:
 
 ## Hypno
 - [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
+- [Nimja Hypnosis](https://hypno.nimja.com/) 
 - [S10 Boy's hypno Audio files (Telegram)](https://t.me/s10boi_hypno)
 
 ## BDSM lists
 - [kinksheet](https://kinksheet.com/)
 - [BDSM Limits](https://www.bdsm-limits.com/)
 
+## Instructions
+- [Electrosex and estim electrode positions] (https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
+- [Shibari& Rope bondage Education by The Duchy](https://www.theduchy.com/) 
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
 
