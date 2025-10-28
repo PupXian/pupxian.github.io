@@ -382,8 +382,10 @@ With special thanks to additional sources:
 - [BDSM Limits](https://www.bdsm-limits.com/)
 
 ## Instructions
-- [Electrosex and estim electrode positions] (https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
-- [Shibari& Rope bondage Education by The Duchy](https://www.theduchy.com/) 
+- [Electrosex and estim electrode positions](https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
+- [Shibari& Rope bondage Education by The Duchy](https://www.theduchy.com/)
+
+  
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
 
