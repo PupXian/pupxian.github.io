@@ -25,7 +25,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Other resources
-[Additional interesting kink sites](#additional-interesting-kink-sites)
+[Additional interesting kink sites](#additional-interesting-kink-sites--channels)
 
 
 ### Updates
