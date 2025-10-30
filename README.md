@@ -292,7 +292,7 @@ By using this website, you agree to the limitations of liability set out in this
 ### Sportswear
 - [Adidas Wrestling]( https://adidaswrestling.com/collections/wrestling-singlets)
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
-- [SneakerMask (ES)](Sneakermask.com) 
+- [SneakerMask (ES)](https://Sneakermask.com) 
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
