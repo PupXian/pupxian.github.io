@@ -29,6 +29,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), Added 0-fox shops (clotrhing), added Kink Wear (General) 
 * 2025-10-28 Added Instructions in the additional interesting kink sites section 
 * 2025-10-23 Added Despair lab (Gas masks & Hoses) 
 * 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
@@ -97,6 +98,7 @@ By using this website, you agree to the limitations of liability set out in this
 ### Furry
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
+- [E-stim Emporium](https://www.estim-emporium.net/) 
 - [Nomad Complex](https://nomadcomplex.com/)
 - [Sew Dog](https://sew.dog/store)
 - [TailEnds (US)](https://tailendsstudios.com)
@@ -139,6 +141,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Full Kit Gear (US)](https://www.fullkit.com/)
 - [House of Montagu (UK)](https://www.hausofmontagu.com/)
 - [Indecent (NL)](Indecent.nl)
+- [Kink Wear (US)](https://kinkwear.shop/)
 - [Lovense toys](https://www.lovense.com/) 
 - [MC Hurt](https://www.mchurt.eu/en/)
 - [MEO](https://www.meo.de/nl/)
@@ -155,6 +158,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Refform (PL)](https://refform.com)
 - [Regulation Store (UK)](https://regulation.store/)
 - [Rob Shop](https://www.rob.eu/)
+- [SM Wholesale (CH)](http://www.sm-wholesale.com/)
 - [Spartas Harness](https://www.spartasharness.com)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
@@ -280,6 +284,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Fuck Yeah! (UK)](https://fuckyeah.uk/)
 - [KB3D (UK)](https://www.kb3d.co.uk/)
 - [Kenze Vacbeds (CH)](https://qianzhik.com/)
+- [Kinky Stuff Made](https://kinkystuffmade.com/)
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
@@ -292,7 +297,9 @@ By using this website, you agree to the limitations of liability set out in this
 ### Sportswear
 - [Adidas Wrestling]( https://adidaswrestling.com/collections/wrestling-singlets)
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
-- [SneakerMask (ES)](https://Sneakermask.com) 
+- [RDS Sports (UK)](https://rdxsports.eu/)
+- [SneakerMask (ES)](https://Sneakermask.com)
+
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
@@ -334,6 +341,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Underwear & Clothing
+- [0 Fox Shop (US)](https://0foxshop.com/)
 - [AASSSOX](https://aasssoxx.pl/) 
 - [Addicted](https://addicted.es/)
 - [Ass tricks apparel](https://www.asstricksapparel.com/)
