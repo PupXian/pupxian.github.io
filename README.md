@@ -29,7 +29,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), Added 0-fox shops (clotrhing), added Kink Wear (General) 
+* 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), Added 0-fox shops (clotrhing), added Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
 * 2025-10-28 Added Instructions in the additional interesting kink sites section 
 * 2025-10-23 Added Despair lab (Gas masks & Hoses) 
 * 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
@@ -182,6 +182,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 ### MX Gear
 - [24MX (NL)](https://www.24mx.nl/)
+- [Alpine Stars (NL)](https://nl.alpinestars.com/en/pages/mx)
 - [Auner (DE)](https://www.auner.at/)
 - [FC Moto (DE)](https://www.fc-moto.de/)
 - [Fox Racing](https://nl.foxracing.com/sale/)
@@ -190,6 +191,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [MotorCross AAD (NL)](https://www.motorcrossaad-webshop.nl/)
 - [MX Gear (NL)](https://mx-deals.nl/)
 - [Ryder Gear (US)](https://www.ryder-gear.com/)
+- [V1 MX (NL)](https://www.v1mx.nl/)
 
 
 ### Poppers
