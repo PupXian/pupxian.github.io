@@ -20,15 +20,16 @@ By using this website, you agree to the limitations of liability set out in this
 
 | [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
-| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex)  | 
-| [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | [Workwear](#workwear) | 
-
+| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex) |
+| [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | 
+|[Workwear](#workwear) |  
 
 ### Other resources
 [Additional interesting kink sites](#additional-interesting-kink-sites--channels)
 
 
 ### Updates
+* 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
 * 2025-10-28 Added Instructions in the additional interesting kink sites section 
 * 2025-10-23 Added Despair lab (Gas masks & Hoses) 
@@ -167,6 +168,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [UberKinky (UK/US)](https://www.uberkinky.com)
 - [Underground Fetish](https://www.underground-fetish.com/)
 - [Viro (PL)](https://www.viro.pl)
+- [Xman-store (NL)](https://www.xman-store.nl/) 
 
 ### Leather
 - [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
@@ -248,6 +250,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Latex Catfish (CH)](https://www.latexcatfish.com)
 - [Latex Crazy](https://en.latexcrazy.com/)
 - [Latex Express (UK)](https://latexexpress.com)
+- [Latex Forever](https://latexforever.com/) 
 - [Latex Skin](https://www.latexskin.pl/)
 - [Latex Nemesis (US)](https://latexnemesis.com)
 - [Latex'D](https://latexd.wixsite.com/tightshiny/home)
@@ -275,6 +278,9 @@ By using this website, you agree to the limitations of liability set out in this
 - [X Rubber (DE)](https://xrubber.de/)
 - [Yuelan (CH)](https://nl.aliexpress.com/store/5071503?spm=a2g0o.productlist.0.0.3de46f31txNU1R)
 
+### Silicone
+- [Feturax](https://feturax.com/)
+- [Smitizen (EU/UK/USA)](https://www.smitizen.com/product-category/local-warehouse)
 
 ### Specialized
 - [Air Master](https://www.air-master.hu/)
@@ -287,10 +293,10 @@ By using this website, you agree to the limitations of liability set out in this
 - [KB3D (UK)](https://www.kb3d.co.uk/)
 - [Kenze Vacbeds (CH)](https://qianzhik.com/)
 - [Kinky Stuff Made](https://kinkystuffmade.com/)
+- [Reduktionfan shop (DE)](https://reduktionsfan-shop.com/) 
 - [Segufix Shop Germany](https://www.segufixshop-germany.com/)
 - [Serious kit](https://www.seriouskitshop.com)
 - [Shoshu Amsterdam](https://shosu.amsterdam/)
-- [Smitizen (EU/UK/USA)](https://www.smitizen.com/product-category/local-warehouse)
 - [Strait Jacket Shop](https://www.etsy.com/shop/StraitJacketShop)
 - [Venus for Men (US)](https://venusformen.com/)
 - [Ut disguise master mask (US)](https://www.utdisguisemastermask.com/collections/fetish-masks)
@@ -379,6 +385,8 @@ With special thanks to additional sources:
 
 # Additional interesting kink sites / Channels
 
+
+
 ## Chastity
 - [Chaster](https://chaster.app/)
 
@@ -390,6 +398,10 @@ With special thanks to additional sources:
 ## BDSM lists
 - [kinksheet](https://kinksheet.com/)
 - [BDSM Limits](https://www.bdsm-limits.com/)
+
+## BDSM Hotels
+- [Der Gutshof](https://der-gutshof.de/index.php/en/)
+
 
 ## Instructions
 - [Electrosex and estim electrode positions](https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
