@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
 * 2025-10-28 Added Instructions in the additional interesting kink sites section 
@@ -96,6 +97,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Screamlabs (UK)](https://www.screamlabs.co.uk)
 
 ### Furry
+- [Awruffgear](https://awruffgear.com/)
 - [AlMersDungeon](https://www.etsy.com/shop/AlMersDungeon)
 - [CrunchyCurl](https://crunchycurl.com/)
 - [E-stim Emporium](https://www.estim-emporium.net/) 
@@ -212,6 +214,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Pup / pet Play
+- [Black Paws (UK)](https://www.blackpaws.co.uk) 
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
@@ -405,6 +408,9 @@ With special thanks to additional sources:
 ## Instructions
 - [Electrosex and estim electrode positions](https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
 - [Shibari& Rope bondage Education by The Duchy](https://www.theduchy.com/)
+
+## Other
+- [Slave registry](https://slavereg.com)
 
   
 # Report Broken Links or Suggest New Sites
