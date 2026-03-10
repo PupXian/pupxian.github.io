@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2026-03-10 Added furrjoi to silicone
+* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
@@ -263,6 +263,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Polymorphe (CA)](https://polymorphe.com/)
 - [RB Originals](https://www.rboriginals.com/webshop/index.php)
 - [Rub Addiction](https://www.rubaddiction.com/)
+- [Rub Concept (FR)](https://rubconcept.fr) 
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
 - [Rubber Fashion (DE)](https://www.rubberfashion.de/)
 - [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
