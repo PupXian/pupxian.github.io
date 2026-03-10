@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear
+* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
@@ -373,6 +373,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Maskulo](https://maskulo.com/)
 - [Menderwear (FR)](https://www.menderwear.com/)
 - [Nasty Pig (US)](https://store.nastypig.com/)
+- [Nomad Complex (CA](https://nomadcomplex.com/) 
 - [Pump!](https://wearpump.com/int/)
 - [Roguefang (US)](https://www.roguefang.com/)
 - [Sk8erboy](https://www.sk8erboy.com/)
