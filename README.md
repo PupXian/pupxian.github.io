@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex
+* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
@@ -188,6 +188,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [24MX (NL)](https://www.24mx.nl/)
 - [Alpine Stars (NL)](https://nl.alpinestars.com/en/pages/mx)
 - [Auner (DE)](https://www.auner.at/)
+- [Dirtbike Xpress (UK)](https://www.dirtbikexpress.co.uk/) 
 - [FC Moto (DE)](https://www.fc-moto.de/)
 - [Fox Racing](https://nl.foxracing.com/sale/)
 - [Kink-star (DE)](https://kinkstar.store/)
