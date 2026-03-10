@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing
+* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
 * 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
@@ -221,6 +221,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
 - [My K9 EU](https://www.my-k9.eu/en/embroidered-dog-collars-with-name-personalised)
+- [Pawstar (US)](https://pawstar.com/) 
 - [Pup sitter shop (US)](https://pupsittershop.com/)
 - [Puppy Pride (UK)](https://puppypride.store/)
 - [pupstyle (DE)](https://pupstyle.de)
