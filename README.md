@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
 * 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
 * 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
@@ -349,6 +350,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Oieffur (US)](https://oieffur.com)
 - [Primal hardwere (US)](https://www.primalhardwere.com)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
+- [SwisOk (CH)](http://swisok.com/)  
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
