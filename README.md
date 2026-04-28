@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2026-04-28 Added Takedownshop (Sportswear) 
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
 * 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
@@ -315,7 +316,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Odyn Athletics (US)](https://www.odyn.co.nz/)
 - [RDS Sports (UK)](https://rdxsports.eu/)
 - [SneakerMask (ES)](https://Sneakermask.com)
-
+- [TakeDownShop (US)](https://takedownshop.com/) 
 
 ### Superhero / Zentai
 - [Hero's Time (CH)](https://www.herostime.com/)
