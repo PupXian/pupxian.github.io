@@ -19,7 +19,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 | [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
-| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers](#poppers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex) |
+| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers & Enhancers](#poppers--enhancers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex) |
 | [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | 
 |[Workwear](#workwear) |  
 
@@ -28,7 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
-* 2026-04-28 Added Takedownshop (Sportswear) 
+* 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
 * 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
 * 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
@@ -201,7 +201,8 @@ By using this website, you agree to the limitations of liability set out in this
 - [V1 MX (NL)](https://www.v1mx.nl/)
 
 
-### Poppers
+### Poppers & Enhancers
+- [Kamagra Deals (NL)](https://kamagra-deals.com/product/kamagra-100mg/)
 - [Poppers Aromas](https://www.poppers-aromas.eu/)
 - [Poppers Kopen (NL)](https://popperskopen.nl/)
 - [Poppers shop (AT)](https://www.poppers-shop.at/)
