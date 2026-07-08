@@ -19,16 +19,16 @@ By using this website, you agree to the limitations of liability set out in this
 
 | [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
-| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers & Enhancers](#poppers--enhancers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex) |
-| [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys) | [Underwear & Clothing](#underwear--clothing) | 
-|[Workwear](#workwear) |  
+| [General](#general)  | [Leather](#leather) | [MX Gear](#mx-gear) | [Poppers & Enhancers](#poppers--enhancers) | [Playroom](#playroom) | [Pup / pet Play](#pup--pet-play) | [Rubber / Latex](#rubber--latex) | 
+|[Rope / Shibari](#rope--shibari) | [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys)  | 
+| [Underwear & Clothing](#underwear--clothing) |[Workwear](#workwear) |  
 
 ### Other resources
 [Additional interesting kink sites](#additional-interesting-kink-sites--channels)
 
 
 ### Updates
-* 2026-08-07 Added EroTouch (General)
+* 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
 * 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
@@ -53,10 +53,13 @@ By using this website, you agree to the limitations of liability set out in this
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
+- [AB-Versand (DE)](https://ab-versand.de/)
+- [ABDLfactory](https://abdlfactory.com/)
 - [ABU Europe (UK)](https://eu.abuniverse.com/)
 - [Allinoneco (UK)](https://allinoneco.co.uk)
 - [BigTot (US)](https://www.etsy.com/pl/shop/BigTot)
 - [Cuddle Kingdom](https://cuddlekingdom.eu/en/)
+- [Cuddlz (UK)](https://www.cuddlz.com/)
 - [Diaper Minister](https://www.diaper-minister.com/en/)
 - [Diaperu (CH)](https://diaperu.com/)
 - [Land of Genie (US)](https://landofgenie.com)
@@ -69,6 +72,9 @@ By using this website, you agree to the limitations of liability set out in this
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Privatina](https://privatina-shop.com)
 - [Tykables (US)](https://tykables.com/)
+
+
+
 
 
 ### Art work
@@ -85,10 +91,10 @@ By using this website, you agree to the limitations of liability set out in this
 - [Kink3D (US)](https://kink3d.com/)
 - [Latowski](http://www.latowski.de/)
 - [Mature Metal (US)](https://www.maturemetal.com/)
+- [My-Steel (DE)](https://www.my-steel.de/home)
 - [Neosteel](https://neosteel.de/en/shop/)
 - [Steelwerks Extreme (CA)](https://www.steelwerksextreme.com)
 - [Steelworxx](https://www.steelworxx.de/Stainless-steel)
-
 
 
 
@@ -97,8 +103,10 @@ By using this website, you agree to the limitations of liability set out in this
 - [E-Stim Systems (UK)](https://www.e-stim.co.uk/index.php)
 - [Electrastim (UK/US/EU)](https://www.electrastim.com/)
 - [Erostek (US)](https://erostek.com/)
+- [Mystim](https://www.mystim.com/en)
 - [Estim Emporium (UK)](https://www.estim-emporium.net/)
 - [Screamlabs (UK)](https://www.screamlabs.co.uk)
+- [Violet Wand Store (US)](https://www.violetwands.com/)
 
 ### Furry
 - [Awruffgear](https://awruffgear.com/)
@@ -129,6 +137,7 @@ By using this website, you agree to the limitations of liability set out in this
 ### General
 - [665 Leather (US)](https://www.665leather.com/)
 - [Army of Men (AU)](https://armyofmen.com/)
+- [Barotique (NL)](https://barotique.nl/)
 - [Benswild (DE)](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
 - [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
@@ -146,6 +155,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [ForFun (TH)](https://www.forfun.store/)
 - [Fort Troff (US)](https://www.forttroff.com/)
 - [Full Kit Gear (US)](https://www.fullkit.com/)
+- [Gaymegastore (EU)](https://www.gaymegastore.eu/)
 - [House of Montagu (UK)](https://www.hausofmontagu.com/)
 - [Indecent (NL)](Indecent.nl)
 - [Kink Wear (US)](https://kinkwear.shop/)
@@ -168,7 +178,9 @@ By using this website, you agree to the limitations of liability set out in this
 - [SM Wholesale (CH)](http://www.sm-wholesale.com/)
 - [Spartas Harness](https://www.spartasharness.com)
 - [Stricken Designs (UK)](https://strickendesigns.com/products)
-- [TakeMeshop (NL)](takemeshop.nl) 
+- [TakeMeshop (NL)](takemeshop.nl)
+- [Terginum (DE)](https://www.terginum.eu/en/)
+- [The Bronx Amsterdam (NL)](https://bronx.nl/?lang=en)
 - [The Kinksters (UK)](https://thekinksters.co.uk/)
 - [The Leather Man (US)](https://the-leather-man-inc.shoplightspeed.com/)
 - [Toy Versand](https://shop.toy-versand.com/en/index?language=en)
@@ -179,14 +191,18 @@ By using this website, you agree to the limitations of liability set out in this
 
 ### Leather
 - [Andrew Fox Crafts](https://www.etsy.com/shop/AndrewFoxCrafts)
-- [Blackdog Shop](https://blackdog-shop.com) 
+- [Blackdog Shop](https://blackdog-shop.com)
+- [Fetish.dk (DK)](https://www.fetish.dk/en/)
 - [House of Basciano (CA)](https://houseofbasciano.com/)
+- [House of SXN](https://houseofsxn.com/)
 - [Parus Leder](https://parus-leder.de/en/)
+- [Provocateur (NL)](https://www.provocateur.shop/)
 - [Saxos (PL)](https://men.saxos.eu/)
 - [Scrapyard leather (CA)](https://www.scrapyardleather.com)
 - [Spitfire Leather (UK)](https://www.spitfireleather.com/)
 - [Tavaron's Leather](https://www.etsy.com/shop/TAVARONsLEATHER)
 - [Top To Bottom Leathers (UK)](https://www.top-to-bottom-leathers.co.uk/)
+
   
 
 ### MX Gear
@@ -222,10 +238,12 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Pup / pet Play
-- [Black Paws (UK)](https://www.blackpaws.co.uk) 
+- [Black Paws (UK)](https://www.blackpaws.co.uk)
+- [Fetish Pets Store](https://www.fetish-pets-store.com/)
 - [G8DBOY](https://www.etsy.com/shop/G8DBOY)
 - [Gear Factory](https://www.gear-factory.eu/shop)
 - [Jet Pup (US)](https://jet-pup.com/)
+- [Kittens & Kink (DE)](https://kittensandkink.com/)
 - [My K9 EU](https://www.my-k9.eu/en/embroidered-dog-collars-with-name-personalised)
 - [Pawstar (US)](https://pawstar.com/) 
 - [Pup sitter shop (US)](https://pupsittershop.com/)
@@ -235,6 +253,13 @@ By using this website, you agree to the limitations of liability set out in this
 - [Tuftsquad (BR)](https://tuftsquad.com.br)
 - [Wruff Stuff (UK)](https://wruffstuff.com/)
 
+### Rope / Shibari
+- [Amatsunawa (JP)](https://www.amatsunawa.com/SHOP/)
+- [Anatomie Shop ](https://eu.shibaristore.com/)
+- [BondageRope.EU ](https://bondagerope.eu/en/)
+- [Reborn Ropes (UK)](https://www.rebornropes.com/)
+- [Ropes & Riggers ](https://www.ropesandriggers.com/)
+- [Twisted Monk (US)](https://www.twistedmonk.com/)
 
 ### Rubber / Latex
 - [ARubber](https://www.etsy.com/shop/ARubber)
@@ -252,6 +277,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Future Fetish](https://futurefetish.com)
 - [Heavy Rubber](https://www.heavyrubber-shop.com/?lang=eng)
 - [Herr Amsterdam](https://herr.amsterdam/shop)
+- [Honour Clothing (UK)](https://www.honourclothing.com/)
 - [Invincible Rubber (UK)](https://www.invinciblerubber.com/)
 - [Into Latex (UK)](https://www.into-latex.co.uk/)
 - [Kink Engineering (CA)](https://kinkengineering.com/)
@@ -268,10 +294,12 @@ By using this website, you agree to the limitations of liability set out in this
 - [Latexas](https://www.latexas.com)
 - [Latextil (DE)](https://www.latextil.de/)
 - [Libidex (UK)](https://libidex.com/)
+- [Peter Domenie (NL)](https://www.peterdomenie.com/en/)
 - [Polymorphe (CA)](https://polymorphe.com/)
 - [RB Originals](https://www.rboriginals.com/webshop/index.php)
 - [Rub Addiction](https://www.rubaddiction.com/)
-- [Rub Concept (FR)](https://rubconcept.fr) 
+- [Rub Concept (FR)](https://rubconcept.fr)
+- [Rubbella (NL)](https://www.rubbella.nl/?lang=en)
 - [Rubber Dutch (NL)](https://www.rubberdutch.com/)
 - [Rubber Fashion (DE)](https://www.rubberfashion.de/)
 - [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
@@ -289,6 +317,8 @@ By using this website, you agree to the limitations of liability set out in this
 - [Wet Hot Rubber (UK)](https://wethot.co.uk/)
 - [X Rubber (DE)](https://xrubber.de/)
 - [Yuelan (CH)](https://nl.aliexpress.com/store/5071503?spm=a2g0o.productlist.0.0.3de46f31txNU1R)
+
+
 
 ### Silicone
 - [Feturax](https://feturax.com/)
@@ -345,29 +375,37 @@ By using this website, you agree to the limitations of liability set out in this
 - [Bad Dragon (US)](https://bad-dragon.com/)
 - [Crackstuffers](https://crackstuffers.com/)
 - [Creature Feature Toys (US)](https://creaturefeaturetoys.com/)
+- [Dragon Dildo UK (UK)](https://www.dragondildo.co.uk/)
+- [Fera Daemon (FR)](https://fera-daemon.com/en)
 - [Flurb](https://flurb.me/)
 - [Hankey's Toys (US)](https://www.mrhankeystoys.com/)
 - [Julliet Toys (CH)](https://www.juliettoys.com)
 - [Knotme](https://knotme.eu)
+- [Kudu Voodoo (US)](https://kuduvoodoo.net/)
 - [Naughty Fox](https://naughty-fox.com/)
 - [Neotori](https://neotori.com/)
 - [Nothosaur (US)](https://nothosaur.com/)
 - [Oieffur (US)](https://oieffur.com)
 - [Primal hardwere (US)](https://www.primalhardwere.com)
+- [Sinnovator](https://sinnovator.com/)
 - [SquarePegToys (US)](https://www.squarepegtoys.com/)
 - [SwisOk (CH)](http://swisok.com/)  
 - [Raw Love Studios (US)](https://www.etsy.com/shop/RawLoveStudio)
 - [Topped Toys (CA)](https://toppedtoys.com/)
+- [Twilight Meadow Creations (SE)](https://twilightmeadowcreations.com/)
 - [Twisted Beast](https://twistedbeaststore.eu/)
+- [Uncover Creations](https://uncovercreations.com/)
 - [Weredog (UK)](https://weredog.co.uk/)
 
 
 ### Underwear & Clothing
 - [0 Fox Shop (US)](https://0foxshop.com/)
-- [AASSSOX](https://aasssoxx.pl/) 
+- [AASSSOX](https://aasssoxx.pl/)
+- [AD Fetish (ES)](https://adfetish.com/)
 - [Addicted](https://addicted.es/)
 - [Ass tricks apparel](https://www.asstricksapparel.com/)
 - [Barcode Berlin](https://store.barcodeberlin.com/)
+- [BIBO Fashion (EU)](https://bibofashion.eu/)
 - [Bizarre](https://www.bizzare.nl/index.php?language=en)
 - [Bock Leder (DE)](https://www.bockleder.de/index.php)
 - [Box Menswear (UK)](https://eu.boxmenswear.com/)
