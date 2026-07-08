@@ -28,6 +28,7 @@ By using this website, you agree to the limitations of liability set out in this
 
 
 ### Updates
+* 2026-08-07 Added EroTouch (General)
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
 * 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
@@ -137,6 +138,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Dark-Ink](https://www.dark-ink.com/en/)
 - [Dungorium (DE)](https://www.dungorium.com)
 - [Erotik Sjop (NL)](https://erotik-sjop.com/)
+- [EroTouch (NL)](https://www.erotouch.eu)
 - [Fetch Shop (UK)](https://www.fetchshop.co.uk/)
 - [Fetish Factory (US)](https://store.fetishfactory.com/)
 - [Fetish Zone (US)](https://www.fetishzone.net/store/)
