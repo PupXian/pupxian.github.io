@@ -11,11 +11,7 @@ table th {
 
 You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops. Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops. We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
 
-[Update list moved to the bottom](#updates)
-
-## Table of Contents
-
-### Kink / Gear shops
+## Kink / Gear shops
 
 | [ABDL](#abdl) | [Art-work](#art-work) |  [Chastity](#chastity) | [Electro](#electro) |  [Furry](#furry) | [Gags](#gags) |   [Gas masks & connectors](#gas-masks--connectors)   |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
@@ -23,9 +19,10 @@ You must be 18 years of age or older to use this website. By using this website,
 |[Rope / Shibari](#rope--shibari) | [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys)  | 
 | [Underwear & Clothing](#underwear--clothing) |[Workwear](#workwear) |  
 
-### Other resources
-[Additional interesting kink sites](#additional-interesting-kink-sites--channels)
 
+[Additional interesting kink sites](#additional-interesting-kink-sites--channels)
+[Updates](#updates)
+[Report issues](#report-broken-links-or-suggest-new-sites)
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
@@ -424,7 +421,6 @@ With special thanks to additional sources:
 
 # Additional interesting kink sites / Channels
 
-
 ## Chastity
 - [Chaster](https://chaster.app/)
 
@@ -453,7 +449,6 @@ With special thanks to additional sources:
   
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
-
 
 
 # Updates
