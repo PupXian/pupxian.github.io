@@ -432,6 +432,7 @@ With special thanks to additional sources:
 - [BrainFuel](https://www.kink-different.com/brain_fuel_mobile)
 - [Nimja Hypnosis](https://hypno.nimja.com/) 
 - [S10 Boy's hypno Audio files (Telegram)](https://t.me/s10boi_hypno)
+- [Youtube - You do not choose hypno video](https://www.youtube.com/watch?v=bwr2jMmK6zQ) 
 
 ## BDSM lists
 - [kinksheet](https://kinksheet.com/)
@@ -456,7 +457,7 @@ If you find a broken link or have additional webshops you would like to suggest 
 
 
 # Updates
-* 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom), Added DLISPA (Electro), Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), RubberTech Clothing (Rubber), FkMe (Underwear & Clothing), KB3D (Gas masks and specialized), Qianzhik (Specialized), App section with HowlHub, Bump and Pupspace
+* 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom), Added DLISPA (Electro), Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), RubberTech Clothing (Rubber), FkMe (Underwear & Clothing), KB3D (Gas masks and specialized), Qianzhik (Specialized), App section with HowlHub, Bump and Pupspace, hypno video - You do not choose
 * 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
