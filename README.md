@@ -439,6 +439,7 @@ With special thanks to additional sources:
 
 ## Instructions
 - [Electrosex and estim electrode positions](https://www.sexmachinereviews.co.uk/advice/electrosex-and-estim-electrode-positions.html)
+- [EStim technology guide](https://pleasure-engineering.net) 
 - [Shibari& Rope bondage Education by The Duchy](https://www.theduchy.com/)
 
 ## Other
