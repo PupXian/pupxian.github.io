@@ -284,6 +284,7 @@ You must be 18 years of age or older to use this website. By using this website,
 - [Rubber Froggy (UK)](http://rubberfroggy.com/shop/)
 - [Rubber Loft](https://www.rubberloft.com)
 - [Rubber Paws (UK)](https://www.rubberpaws.co.uk/shop)
+- [Rubber Tech Clothing (DE)](https://www.etsy.com/de/shop/RubberTechClothing)
 - [Rubberik](https://rubberik.at/index.php?route=common/home)
 - [Simon-O](https://www.simon-o.com/)
 - [SkinTightRubber (UK)](https://www.skintightrubber.uk)
@@ -395,6 +396,7 @@ You must be 18 years of age or older to use this website. By using this website,
 - [Breedwell (US)](https://breedwell.com/)
 - [Cheeky boy Harness](https://cheekyboyharness.com)
 - [Code 22](https://www.code22.eu/)
+- [FKME](https://fkmemerch.com)
 - [Gear Berlin](https://gearberlin.com/)
 - [Jor Wear (Co)](https://www.jorwear.com/)
 - [Kinky Locked (PL)](Kinkylocked.com)
@@ -454,7 +456,7 @@ If you find a broken link or have additional webshops you would like to suggest 
 
 
 # Updates
-* 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom), Added DLISPA (Electro), Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), KB3D (Gas masks and specialized), Qianzhik (Specialized), App section with HowlHub, Bump and Pupspace
+* 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom), Added DLISPA (Electro), Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), RubberTech Clothing (Rubber), FkMe (Underwear & Clothing), KB3D (Gas masks and specialized), Qianzhik (Specialized), App section with HowlHub, Bump and Pupspace
 * 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
 * 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
