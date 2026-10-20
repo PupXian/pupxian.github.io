@@ -19,10 +19,9 @@ You must be 18 years of age or older to use this website. By using this website,
 |[Rope / Shibari](#rope--shibari) | [Silicone](#silicone) | [Specialized](#specialized) |  [Sportswear](#sportswear) | [Superhero / Zentai](#superhero--zentai) |   [Tactical & tech Gear](#tactical--tech-gear) | [Toys](#toys)  | 
 | [Underwear & Clothing](#underwear--clothing) |[Workwear](#workwear) |  
 
-
-[Additional interesting kink sites](#additional-interesting-kink-sites--channels)
-[Updates](#updates)
-[Report issues](#report-broken-links-or-suggest-new-sites)
+- [Additional interesting kink sites](#additional-interesting-kink-sites--channels)
+- [Updates](#updates)
+- [Report issues](#report-broken-links-or-suggest-new-sites)
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
