@@ -106,7 +106,7 @@ You must be 18 years of age or older to use this website. By using this website,
 - [RubberShop](https://rubbershop.net/)
 - [Slick Aroma Gear (UK)](https://shop.slickstore.co.uk/product-category/aroma-gear/)
 - [Stricken Designs Gas Masks (UK)](https://www.strickendesigns.com)
-
+- [Vast (DE)](https://www.vast.de/en) 
 
 
 ### General
@@ -207,9 +207,11 @@ You must be 18 years of age or older to use this website. By using this website,
 
 ### Playroom
 - [Behind Bars](https://bhndbars.com/)
+- [Darkmatter69 (US)](https://darkmatter69.com/)
 - [Dungeon Delights (US)](https://www.dungeondelights.com/online-store)
 - [Steel Toys (NL)](https://steeltoys.nl/)
 - [StyleFetish (DE)](https://stylefetish.de/)
+- [Vast (DE)](https://www.vast.de/en)
 - [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 
@@ -449,6 +451,7 @@ If you find a broken link or have additional webshops you would like to suggest 
 
 
 # Updates
+* 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom) 
 * 2026-10-20 Added Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), KB3D (Gas masks and specialized)
 * 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
