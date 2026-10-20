@@ -9,9 +9,9 @@ table th {
 </style>
 # Disclaimer
 
-You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older. The content provided on this website is for informational purposes only. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops. Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops. We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
+You must be 18 years of age or older to use this website. By using this website, you represent and warrant that you are 18 years of age or older. We do not have any control over these external websites and we do not assume responsibility or liability for the accuracy, content, privacy policies, or practices of any third-party webshops. Any actions you take upon the information provided on this website is strictly at your own risk. We are not liable for any losses or damages in connection with the use of our website or the websites we link to. It is your responsibility to verify any information before relying on it and to exercise your own judgement about whether or not to engage in transactions with any third-party webshops. We have no affiliations, sponsorships, partnerships, or any other kind of relationship with the webshops listed on this website.
 
-By using this website, you agree to the limitations of liability set out in this disclaimer.
+[Update list moved to the bottom](#updates)
 
 ## Table of Contents
 
@@ -26,30 +26,6 @@ By using this website, you agree to the limitations of liability set out in this
 ### Other resources
 [Additional interesting kink sites](#additional-interesting-kink-sites--channels)
 
-
-### Updates
-* 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
-* 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
-* 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
-* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
-* 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
-* 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
-* 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
-* 2025-10-28 Added Instructions in the additional interesting kink sites section 
-* 2025-10-23 Added Despair lab (Gas masks & Hoses) 
-* 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
-* 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
-* 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
-* 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
-* 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
-* 2025-07-21 Pup sitter shop (US), Adidas Wrestling
-* 2025-07-20 House Of Denial (UK)
-* 2025-07-01 Weredog
-* 2025-07-01 Added UF PRO 
-* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
-* 2025-05-05 Added Neosteel and Steelworxx (chastity)
-* 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
-* 2025-03-05 Added screamlabs (Electro)
 
 ### ABDL
 - [AB-DL-TB Club Shop](https://ab-dl-tb-club-shop.nl/en/)
@@ -72,9 +48,6 @@ By using this website, you agree to the limitations of liability set out in this
 - [Onesies Down Under (US)](https://onesiesdownunder.com/)
 - [Privatina](https://privatina-shop.com)
 - [Tykables (US)](https://tykables.com/)
-
-
-
 
 
 ### Art work
@@ -127,9 +100,11 @@ By using this website, you agree to the limitations of liability set out in this
 - [Aroma Pump Hose (UK)](https://aromaspumphoses.com/)
 - [Despair Lab](https://despairlab.com/)
 - [FE Rubber (CH)](https://www.ferubber.com/)
+- [KB3D (UK)](https://www.kb3d.co.uk/)
 - [Rubber Bunker](https://rubber-bunker.com/)
 - [RubberFun](https://rubberfun.nl/nl/)
 - [RubberShop](https://rubbershop.net/)
+- [Slick Aroma Gear (UK)](https://shop.slickstore.co.uk/product-category/aroma-gear/)
 - [Stricken Designs Gas Masks (UK)](https://www.strickendesigns.com)
 
 
@@ -195,6 +170,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Fetish.dk (DK)](https://www.fetish.dk/en/)
 - [House of Basciano (CA)](https://houseofbasciano.com/)
 - [House of SXN](https://houseofsxn.com/)
+- [Leather Collection (UK)](https://leathercollection.co.uk)
 - [Parus Leder](https://parus-leder.de/en/)
 - [Provocateur (NL)](https://www.provocateur.shop/)
 - [Saxos (PL)](https://men.saxos.eu/)
@@ -308,6 +284,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Rubberik](https://rubberik.at/index.php?route=common/home)
 - [Simon-O](https://www.simon-o.com/)
 - [SkinTightRubber (UK)](https://www.skintightrubber.uk)
+- [Slick Latex Care (UK)](https://shop.slickstore.co.uk/product-category/latex-care/)
 - [Studio Gum](https://www.studiogum.com/)
 - [Twist My Rubber Arm (CA)](https://www.twistmyrubberarm.com)
 - [UNIQDSN (US)](https://uniqdsn.com/)
@@ -378,6 +355,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Dragon Dildo UK (UK)](https://www.dragondildo.co.uk/)
 - [Fera Daemon (FR)](https://fera-daemon.com/en)
 - [Flurb](https://flurb.me/)
+- [Greedy Cluster (US)](https://greedycluster.com/)
 - [Hankey's Toys (US)](https://www.mrhankeystoys.com/)
 - [Julliet Toys (CH)](https://www.juliettoys.com)
 - [Knotme](https://knotme.eu)
@@ -411,6 +389,7 @@ By using this website, you agree to the limitations of liability set out in this
 - [Box Menswear (UK)](https://eu.boxmenswear.com/)
 - [Boxer Barcelona](https://boxerbarcelona.com/)
 - [Breedwell (US)](https://breedwell.com/)
+- [Cheeky boy Harness](https://cheekyboyharness.com)
 - [Code 22](https://www.code22.eu/)
 - [Gear Berlin](https://gearberlin.com/)
 - [Jor Wear (Co)](https://www.jorwear.com/)
@@ -440,7 +419,6 @@ With special thanks to additional sources:
 # Additional interesting kink sites / Channels
 
 
-
 ## Chastity
 - [Chaster](https://chaster.app/)
 
@@ -467,4 +445,32 @@ With special thanks to additional sources:
   
 # Report Broken Links or Suggest New Sites
 If you find a broken link or have additional webshops you would like to suggest for inclusion, please send a message on [Telegram (@pupXian)](https://t.me/pupxian) or open an issue on [this](https://github.com/PupXian/pupxian.github.io) repository. Your contributions are appreciated.
+
+
+
+# Updates
+* 2026-10-20 Added Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), KB3D (Gas masks and specialized)
+* 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
+* 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
+* 2026-04-21 Removed Rubber Bunker (website Dead, Removed RB Originals (Closed down), added Swisok under toys 
+* 2026-03-10 Added furrjoi to silicone, added rubconcept to latex, dirtbike xpress to MX gear, Nomad Complex to Underwear & Clothing, Added Pawstar to Pup / pet play
+* 2026-02-20 Added Slave Registry under other reasources, AwruffGear to furry, and blackpaws to pup/petplay
+* 2026-01-13 Added X-man store (general), BDSM Hotel (other resources), Reducktionfan-shop (Specialized), Added Feturax, and new section of Silicone
+* 2025-11-02 Added SM Wholesale (General), KinkyStuffMade (Specialized), E-Stim Emporium (Electro), 0-fox shops (clotrhing), Kink Wear (General), V1MX (MX Gear), Alpine Stars (MX) 
+* 2025-10-28 Added Instructions in the additional interesting kink sites section 
+* 2025-10-23 Added Despair lab (Gas masks & Hoses) 
+* 2025-10-14 Added Poppers kopen (NL) to Poppers section, and added a new section of BDSM Limit lists (With BDSM-Limits and KinkSheet), Removed updates from 2024 to keep the page shorter, Added Nomad Complex (Furry), Sneakermask (SportsWear), Added Indecent (General), Saxos (Leather) Fixed Table of contents
+* 2025-09-16 Added Attire Invention (DE) to tactical and tech gear 
+* 2025-09-06 Added new section of interesting kink sites: Chaster (Chastity) & Brainfuel (Hypno) 
+* 2025-09-06 Added KinkFox (latex), AssTricks (clothing), Villain Garcon (Rubber)
+* 2025-08-04 removed slingking (closed) added fabric of the universe (us) 
+* 2025-07-21 Pup sitter shop (US), Adidas Wrestling
+* 2025-07-20 House Of Denial (UK)
+* 2025-07-01 Weredog
+* 2025-07-01 Added UF PRO 
+* 2025-07-01 Added EOD Gear, Airsoft Legends (Tactical), Kink Star (MX gear), Kenze Vacbeds (Specialized) , utdisguisemastermask (Specialized masks)
+* 2025-05-05 Added Neosteel and Steelworxx (chastity)
+* 2025-03-30 Added Gags section with SilenCilicone and MoanSpeak (Gags)
+* 2025-03-05 Added screamlabs (Electro)
+
 
