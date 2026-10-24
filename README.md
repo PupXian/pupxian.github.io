@@ -112,7 +112,7 @@ You must be 18 years of age or older to use this website. By using this website,
 - [Barotique (NL)](https://barotique.nl/)
 - [Benswild (DE)](https://benswild.com/)
 - [Black Body (NL)](https://www.blackbody.nl/)
-- [Black Store (SW)](https://www.blackstore.ch/shop/en-us/enter.html)
+- [Black Store (SW)](https://www.blackstore.ch/)
 - [Church of Sinvention (CA)](https://churchofsinvention.com/)
 - [Clone Zone (UK)](https://www.clonezonedirect.co.uk)  
 - [Cuffed Store](https://cuffed.store)
@@ -209,7 +209,6 @@ You must be 18 years of age or older to use this website. By using this website,
 - [Steel Toys (NL)](https://steeltoys.nl/)
 - [StyleFetish (DE)](https://stylefetish.de/)
 - [Vast (DE)](https://www.vast.de/en)
-- [Your Lifestyle](https://www.yourlifestyle.eu/)
 
 
 ### Pup / pet Play
@@ -451,6 +450,7 @@ If you find a broken link or have additional webshops you would like to suggest 
 
 
 # Updates
+* 2026-10-24 removed dead webshops: https://www.yourlifestyle.eu/ 
 * 2026-10-20 Added Darkmatter69 (Playroom), Added Vast (gas masks & Hoses, Playroom), Added DLISPA (Electro), Leather collection (Leather), Cheeky Boy harness (Underwear & Clothing), Greedy Cluster (Toys), Slick (Latex and Gas masks), RubberTech Clothing (Rubber), FkMe (Underwear & Clothing), KB3D (Gas masks and specialized), Qianzhik (Specialized), App section with HowlHub, Bump and Pupspace, hypno video - You do not choose
 * 2026-07-08 Added EroTouch (General), added Rope / Shibari section, added ABDLfactory, AB-Versand, Cuddlz (ABDL), My-Steel (Chastity); Mystim, Violet Wand Store (Electro), Barotique, Gaymegastore, Terginum, The Bronx Amsterdam (General), Fetish.dk, House of SXN, Provocateur (Leather),  Fetish Pets Store, Kittens & Kink, Honour Clothing,  Peter Domenie, Rubbella (Rubber / Latex), Dragon Dildo UK, Fera Daemon, Kudu Voodoo, Sinnovator, Twilight Meadow Creations, Uncover Creations (Toys), AD Fetish, BIBO Fashion (underwear and clothing), 
 * 2026-04-28 Added Takedownshop (Sportswear), Kamagra Deals (Poppers & Enhancers), MenAttitude (Underwear & Clothing), TakeMeShop.nl (General)
